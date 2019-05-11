@@ -161,17 +161,27 @@ The following training exercises instruct Tops how to increase the stretch for b
     * 纸巾
     *   Room Odorisers/Poppers
     *   Towels or pads to place beneath the Bottom
+  * 放在受身下的毛巾或者隔水垫
     *   Copious amounts of lube, preferably specialty or hybrid variety
+  * 大量润滑剂，最好是拳交专用的或者混合类型的
     *   Table salt (if using J-lube)
+  * 食用盐（如果采用J-lube作为润滑剂的话）
     
     *   Goals
+目标
     *   Elbow and pit depth insertion into fist chute
+  * 插入肛道深入至肘，或者更深
     *   Expanded stretch capacity of second and third rings
-    
+  * 扩张第二和第三括约肌
+
     *   Period: Six Months to Three Years
+  * 时间：六个月到三年
     *   Session Duration: 1 Hour Minimum
+  * 锻炼时间: 最少1个小时
     *   Frequency: Once Weekly Minimum
+  * 频度：至少每周一次
     *   Douche: [Level 3](as_wash.html#L3)
+  * 灌肠/清洗：第三级
     
     *   [Print these instructions](documents/training_mastering_multiple_rings.pdf)
     *   [View the demonstration](video/single_fist_rings.mpg)
@@ -244,21 +254,33 @@ The following training exercises instruct Tops how to increase the stretch for b
     ------------------------
     
     *   Supply Warehouse
+  * 工具和材料
     *   Paper towels
+  纸巾
     *   Room Odorisers/Poppers
+  Rush？
     *   Towels or pads to place beneath the Bottom
+  
     *   Copious amounts of lube, preferably specialty or hybrid variety
     *   Table salt (if using J-lube)
     
     *   Goals
+目标
     *   Double wrist insertion into fist chute
+双手插入到手腕的深度
     *   Expanded stretch capacity of anal canal
+扩张肛门口
     
     *   Duration & Pre-requisites
+时间
     *   Period: Four to Six Months
+时长： 四到六个月
     *   Session Duration: 1 Hour Minimum
+练习时长： 至少一个小时
     *   Frequency: Once Weekly Minimum
+频度：至少每周一次
     *   Douche: [Level 2](as_wash.html#L3)
+灌肠：第二级别
     
     *   [Print these instructions](documents/training_mastering_double_fisting.pdf)
     *   [View the demonstration](video/double_fist.mpg)
@@ -266,27 +288,45 @@ The following training exercises instruct Tops how to increase the stretch for b
     ### Steps / Procedure
     
     1.  Stetch the hole for double penetration.
+1. 为双拳做的扩张准备
     
     ![](images/g_unavailable.png)*   Insert four fingers of each hand into the hole with palms together.
+双手手掌相对，各自插入4个手指
     *   Rub the palms together in a seesaw motion to expand the anal canal and first ring.
+摩擦手掌，同时做旋转动作，以扩张肛门括约肌
     *   Remove fingers and reinsert with palms facing outward.
+抽出手指，双手手掌向外插入
     *   Rotate around the hole increasing the stretch while massaging the ring.
+绕着菊花洞旋转以按摩并扩张括约肌
     *   Remove hands when ready to begin final insertion.
+抽出双手以准备最终的冲刺
     
     3.  Insert the larger fist.
+插入更大的拳头
     
-    ![](images/g_unavailable.png)*   Determine with the Bottom if the fist should remain in the rectum or deeper past the second ring.
+    ![](images/g_unavailable.png)
+*   Determine with the Bottom if the fist should remain in the rectum or deeper past the second ring.
+跟受确认拳需要保持在直肠还是深入过第二括约肌.
     *   Reach a comfortable resting place, preferably at the narrowest part of the arm.
-    
+让攻的手找到一个最舒适的保持位置，一般是胳膊上最细的位置
+
+
     5.  Introduce additional fingers into the anal canal.
+把更多的手指插入肛门
     
-    ![](images/g_unavailable.png)*   Insert a single finger alongside the wrist of the inserted fist.
+    ![](images/g_unavailable.png)
+*   Insert a single finger alongside the wrist of the inserted fist.
+保持一个手已经插入的情况下，在手腕附近开始插入一个手指
     *   Add addtional fingers and stretch the ring by opening your fingers in a scissor motion.
+插入另外一个手指，并且打开手指做剪刀运动，以扩张肛门
     *   Press all four fingers into the hole up to the thumb joint.
+插入全部四个手指，深入到拇指根部
     
     7.  Pop the hole and ring:
+
     
-    ![](images/g_unavailable.png)*   Popper up the Bottom with very long hit.
+    ![](images/g_unavailable.png)
+*   Popper up the Bottom with very long hit.
     *   Position the thumb flat on top of the pointer finger.
     *   Brace the hands and allow the Bottom to push back to accept the full wrist.
     *   Encourge pistoning and wiggling left to right until wrist is accepted completely.
