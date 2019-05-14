@@ -53,26 +53,29 @@ Before starting your stretch, consider the following items:
 
     ![AHaa 这里有张图哦](images/as_str_figures_basic_thermometer.png)
     
-    *   Creams and solid lubes should be at room temperature or warmer if possible.
-    *   Liquid lubes should be above the body temperature of the Bottom by five to ten degrees.
     * 膏状或固体的润滑剂温度应当接近室温，如果可以的话应当更高
     * 液体的润滑剂温度应当高于受的体温3-6摄氏度
-    *   Room temperatures vary based on Bottom's tastes - I prefer anything 72 degrees or warmer. Cold rooms contract skin and freeze hands!
     * 室温取决于受的喜好，建议不要低于22度，室温太低会导致皮肤紧缩，还会让手冰凉
 *   Communication - Bottoms should let Tops know how/where to start and continue leading the session until termination. For example, I find one or two fingers uncomfortable and prefer to start with at least three or four fingers. I also have specific places that are more comforatable resting zones which must be communicated to the man who's elbow is about to disappear into my hole.
 * 交流：受要告诉攻什么时候开始，如何开始。 并且要全程主导后面的所有活动。 比如“我觉得一两个手指插入并不舒服，希望开始的时候就插入三四个手指。” 。。。。。
 *   Boundaries and Limitations - Most anal fissures and intestinal perforations/tears are the result of forced toy play or inexperienced Tops. Stretching is a gradual exercise and success is measured in millimeters, not centimeters (or inches). If stretching the lower fist chute, stop when you feel burning. For depth play, never push into a wall! Follow the channel always.
+*   界限及限制 - 大部分xx的撕裂以及插入引起的穿孔和撕裂都是因为使用玩具时强行插入以及没有经验的攻引起的。扩展是个渐进的过程，每一步的进展是以毫米计的。当扩张肛道时，当感觉到火辣辣的疼痛时要马上停止。对于深入扩张的情况，一定要顺着肠道推进，绝对不要用力推挤肠壁。
 
-Exercises/Techniques
+练习/技术
 --------------------
 
-### Techniques for Self Play
+### 自己练习的方法
 
 Solo activities can increase the competence of the Bottom for partner play. These activities facilitate/precede any partner stretching exercises:
 
+拳受单独练习可以提高和伴侣的协调性，在一起玩的时候会更加顺利。自己练习的经历能够促进或者领先于和伴侣一同进行的扩张练习。
+
 *   Double and triple toy penetration with average dildos. Use three standard width dildos to penetrate the hole. This trains your muscles and mind on relaxing enough to let multiple items inside you (cock and hand, toy and hand, two hands). If possible, stay shallow (inside the rectum) to avoid injury.
+*   两个或者三个常见尺寸的假阳具插入。使用三个常见粗细的阳具插入菊洞。 这样可以训练括约肌的适应性，仪表适应多个物体的插入（阳具和手，玩具和手，以及双手）。如果可能的话，不要深入（保持在直肠的深度）以避免受伤。
 *   Finger stretching on extra-large toys. This duplicates the technique of inserting a second hand once the rectum is full (see below).
+*   在很大的工具插入的情况下使用手指扩张。这个方法与后面提到的插入第二只手的方案相同。
 *   Resting-point challenges. Plug yourself with an extra-large toy at full depth for 5, 10, or 15 minute periods. Do not increase or decrease depth during the insertion period. This helps create comfortable resting places for your fisting routines.
+*   保持训练：插入足够大的工具到最大的深度，并将保持5，10或者15分钟。在保持的时间内不要增加也不要减少深度。这个训练有助于在拳交练习的过程中保持一个
 *   Butt Plugs. Plugs may loosen the first ring, but are generally useless in the fisting process because the tapered part does not mimic the anatomy of the anal canal and rectum.
 
 ### Exercises with Partners
@@ -162,25 +165,39 @@ The following training exercises instruct Tops how to increase the stretch for b
     *   Room Odorisers/Poppers
     *   Towels or pads to place beneath the Bottom
   * 放在受身下的毛巾或者隔水垫
+    
     *   Copious amounts of lube, preferably specialty or hybrid variety
+    
   * 大量润滑剂，最好是拳交专用的或者混合类型的
+    
     *   Table salt (if using J-lube)
+    
   * 食用盐（如果采用J-lube作为润滑剂的话）
     
     *   Goals
 目标
     *   Elbow and pit depth insertion into fist chute
+    
   * 插入肛道深入至肘，或者更深
+    
     *   Expanded stretch capacity of second and third rings
+    
   * 扩张第二和第三括约肌
 
     *   Period: Six Months to Three Years
+    
   * 时间：六个月到三年
+    
     *   Session Duration: 1 Hour Minimum
+    
   * 锻炼时间: 最少1个小时
+    
     *   Frequency: Once Weekly Minimum
+    
   * 频度：至少每周一次
+    
     *   Douche: [Level 3](as_wash.html#L3)
+    
   * 灌肠/清洗：第三级
     
     *   [Print these instructions](documents/training_mastering_multiple_rings.pdf)
@@ -190,7 +207,9 @@ The following training exercises instruct Tops how to increase the stretch for b
     
     1.  Locate the second ring.
     
-    ![](images/g_unavailable.png)*   Massage/work the hole as needed to prepare for fist acceptance.
+    ![](images/g_unavailable.png)
+    
+    *   Massage/work the hole as needed to prepare for fist acceptance.
     
     *   Push and retract (in gradual motion) until four fingers are inside the hole.
     *   Twist and probe to locate the channel to the second ring and sigmoid colon.
@@ -256,11 +275,11 @@ The following training exercises instruct Tops how to increase the stretch for b
     *   Supply Warehouse
   * 工具和材料
     *   Paper towels
-  纸巾
+    纸巾
     *   Room Odorisers/Poppers
-  Rush？
+    Rush？
     *   Towels or pads to place beneath the Bottom
-  
+    
     *   Copious amounts of lube, preferably specialty or hybrid variety
     *   Table salt (if using J-lube)
     
@@ -289,7 +308,7 @@ The following training exercises instruct Tops how to increase the stretch for b
     
     1.  Stetch the hole for double penetration.
 1. 为双拳做的扩张准备
-    
+   
     ![](images/g_unavailable.png)*   Insert four fingers of each hand into the hole with palms together.
 双手手掌相对，各自插入4个手指
     *   Rub the palms together in a seesaw motion to expand the anal canal and first ring.
