@@ -8,5 +8,5 @@
   * [Developing](fisting_train/developing.md)
   * [ExtermeFisting ](fisting_train/ExtermeFisting.md)
   * [lubrication](fisting_train/lubrication.md)
-  * [stretching](fisting_train/stretching.md)
+  * [扩张](fisting_train/stretching.md)
 

@@ -7,9 +7,6 @@ Storytime: The Handshake!
 
 To say Edwin was eccentric was an understatement. As I recall, his home was truly unique. For example, his doorbell chimed Christmas tunes, even during the hot, humid months of summer in the Deep South. He charismatically refered to his home as _Eddie-land_ and the bedroom was just as unique as the rest of his home. A permanent sling was attached to the four-poster bed and was specifically set up for fisting with strategically placed lube pods, paper towels, and a stool for the penetrating partner. But enough about Eddie-land—this story is about the handshake.
 
-用古怪来描述Edwin太不够了。他的家看起来特别独特。
-
-
 
 
 
@@ -56,9 +53,7 @@ Before starting your stretch, consider the following items:
     * 膏状或固体的润滑剂温度应当接近室温，如果可以的话应当更高
     * 液体的润滑剂温度应当高于受的体温3-6摄氏度
     * 室温取决于受的喜好，建议不要低于22度，室温太低会导致皮肤紧缩，还会让手冰凉
-*   Communication - Bottoms should let Tops know how/where to start and continue leading the session until termination. For example, I find one or two fingers uncomfortable and prefer to start with at least three or four fingers. I also have specific places that are more comforatable resting zones which must be communicated to the man who's elbow is about to disappear into my hole.
 * 交流：受要告诉攻什么时候开始，如何开始。 并且要全程主导后面的所有活动。 比如“我觉得一两个手指插入并不舒服，希望开始的时候就插入三四个手指。” 。。。。。
-*   Boundaries and Limitations - Most anal fissures and intestinal perforations/tears are the result of forced toy play or inexperienced Tops. Stretching is a gradual exercise and success is measured in millimeters, not centimeters (or inches). If stretching the lower fist chute, stop when you feel burning. For depth play, never push into a wall! Follow the channel always.
 *   界限及限制 - 大部分xx的撕裂以及插入引起的穿孔和撕裂都是因为使用玩具时强行插入以及没有经验的攻引起的。扩展是个渐进的过程，每一步的进展是以毫米计的。当扩张肛道时，当感觉到火辣辣的疼痛时要马上停止。对于深入扩张的情况，一定要顺着肠道推进，绝对不要用力推挤肠壁。
 
 练习/技术
@@ -66,19 +61,15 @@ Before starting your stretch, consider the following items:
 
 ### 自己练习的方法
 
-Solo activities can increase the competence of the Bottom for partner play. These activities facilitate/precede any partner stretching exercises:
-
 拳受单独练习可以提高和伴侣的协调性，在一起玩的时候会更加顺利。自己练习的经历能够促进或者领先于和伴侣一同进行的扩张练习。
 
-*   Double and triple toy penetration with average dildos. Use three standard width dildos to penetrate the hole. This trains your muscles and mind on relaxing enough to let multiple items inside you (cock and hand, toy and hand, two hands). If possible, stay shallow (inside the rectum) to avoid injury.
-*   两个或者三个常见尺寸的假阳具插入。使用三个常见粗细的阳具插入菊洞。 这样可以训练括约肌的适应性，仪表适应多个物体的插入（阳具和手，玩具和手，以及双手）。如果可能的话，不要深入（保持在直肠的深度）以避免受伤。
-*   Finger stretching on extra-large toys. This duplicates the technique of inserting a second hand once the rectum is full (see below).
+*   两到三个常见尺寸的假阳具的插入。使用三个常见粗细的阳具插入菊洞。 这样可以训练括约肌的适应性，仪表适应多个物体的插入（阳具和手，玩具和手，以及双手）。如果可能的话，不要深入（保持在直肠的深度）以避免受伤。
 *   在很大的工具插入的情况下使用手指扩张。这个方法与后面提到的插入第二只手的方案相同。
-*   Resting-point challenges. Plug yourself with an extra-large toy at full depth for 5, 10, or 15 minute periods. Do not increase or decrease depth during the insertion period. This helps create comfortable resting places for your fisting routines.
 *   保持训练：插入足够大的工具到最大的深度，并将保持5，10或者15分钟。在保持的时间内不要增加也不要减少深度。这个训练有助于在拳交练习的过程中保持一个
-*   Butt Plugs. Plugs may loosen the first ring, but are generally useless in the fisting process because the tapered part does not mimic the anatomy of the anal canal and rectum.
+* 肛塞： 肛塞可以放松肛门括约肌。但是一般对于拳交训练没有多大用处。因为锥形的结构并不能模拟肛门和直肠的解剖结构
 
-### Exercises with Partners
+### 与伴侣共同练习
+
 
 The following training exercises instruct Tops how to increase the stretch for both shallow and depth fisting:
 
@@ -86,186 +77,159 @@ The following training exercises instruct Tops how to increase the stretch for b
     
     Mastering Edwin's Handshake
     ---------------------------
-    
-    *   Supply Warehouse
-    *   Paper towels
-    *   Room Odorisers/Poppers
-    *   Towels or pads to place beneath the Bottom
-    *   Copious amounts of lube, preferably specialty or hybrid variety
-    *   Table salt (if using J-lube)
-    
-    *   Goals
-    *   Full wrist insertion into fist chute
-    *   Expanded stretch capacity of anal canal
-    
-    *   Duration & Pre-requisites
-    *   Period: One to Two Months
-    *   Session Duration: 1/2 Hour Minimum
-    *   Frequency: Once Weekly Minimum
-    *   Douche: [Level 1](as_wash.html#L1)
-    
-    *   [Print these instructions](documents/training_mastering_edwins_handshake.pdf)
-    *   [View the demonstration](video/single_fist_edwin.mpg)
-    
-    ### Steps / Procedure
-    
-    1.  Massage the the taint and hole for two minutes without finger insertion.
-    
-    ![](images/g_unavailable.png)*   Communicate with the Bottom regarding styles and comfort levels during this time.
-    *   Start dry (or with the hole lubed from rim-job spit) with a simple petting motion.
-    *   Apply lube to insertive hand and repeat the petting process to ensure that the taint, hole, and hand are well lubed.
-    
-    3.  Insert fingers into the hole and massage the anal canal gently.
-    
-    ![](images/g_unavailable.png)*   Start with the base finger count if two (or more if specified by the Bottom).
-    *   Push the fingers gently deeper until fully inserted.
-    *   Curl the top knuckle and pull down, applying pressure to the top of the anal canal.
-    *   Circle around the entire hole with the tug/pull-down motion for about two minutes.
-    
-    5.  Introduce additional fingers into the anal canal.
-    
-    ![](images/g_unavailable.png)*   Stretch the ring by opening your fingers in a scissor motion and twist inside the hole.
-    *   Retract the fingers and introduce additional fingers (following the process in Step 2).
-    *   Repeat the tug/pulldown and scissoring procedure until all four fingers are inside the anal canal.
-    
-    7.  Pop the hole and ring:
-    
-    ![](images/g_unavailable.png)*   Position the thumb along palm, pointing between the middle and ring fingers.
-    *   Insert the fingers and thumb and repeat the curl and tug process applying.
-    *   Popper up the Bottom.
-    *   Apply pressure and encourage the Bottom to relax and bare the additional pressure to swallow the fist.
-    *   Curl the knuckles as the Bottom pulls you past his ring and swallows your wrist.
-    
-    #### Aftercare
-    
-    New Bottoms should wait at least a week before repeating a session. Even with proper lubrication, there will be micro-tears to his hole until he can easily take a fist.
-    
-    #### Tips
-    
-    *   Petting the taint and hole triggers a subconscious physiological response in many Bottoms to relax the muscles in the anal canal.
-    *   Overstimulating the sphincter with excessive fingering may cause irritation and contraction of the hole, preventing entry. Avoid unnecessary finger play.
-    
-    #### Mastery/Progression
-    
-    Repeat this procedure until the Bottom can maintain a fist within his hole for several minutes.
-    
-2.  ###### Category: Partnership Stretch Exercises
-    
-    Mastering Multiple Rings
-    ------------------------
-    
-    扩张多个括约肌
-    
-    
-    
-    *   Supply Warehouse
-    * 工具/原料
-    *   Paper towels
-    * 纸巾
-    *   Room Odorisers/Poppers
-    *   Towels or pads to place beneath the Bottom
-  * 放在受身下的毛巾或者隔水垫
-    
-    *   Copious amounts of lube, preferably specialty or hybrid variety
-    
-  * 大量润滑剂，最好是拳交专用的或者混合类型的
-    
-    *   Table salt (if using J-lube)
-    
-  * 食用盐（如果采用J-lube作为润滑剂的话）
-    
-    *   Goals
-目标
-    *   Elbow and pit depth insertion into fist chute
-    
-  * 插入肛道深入至肘，或者更深
-    
-    *   Expanded stretch capacity of second and third rings
-    
-  * 扩张第二和第三括约肌
 
-    *   Period: Six Months to Three Years
+#### 设备与工具
+
+    * Supply Warehouse
     
-  * 时间：六个月到三年
+    * Paper towels
     
-    *   Session Duration: 1 Hour Minimum
+    * Room Odorisers/Poppers
     
-  * 锻炼时间: 最少1个小时
+    * Towels or pads to place beneath the Bottom
     
-    *   Frequency: Once Weekly Minimum
+    * Copious amounts of lube, preferably specialty or hybrid variety
     
-  * 频度：至少每周一次
+    * Table salt (if using J-lube)
     
-    *   Douche: [Level 3](as_wash.html#L3)
+      ### 目标
     
-  * 灌肠/清洗：第三级
+    * 整个手插入肛道直到手腕
     
-    *   [Print these instructions](documents/training_mastering_multiple_rings.pdf)
-    *   [View the demonstration](video/single_fist_rings.mpg)
+    * 扩张肛门的宽度
+
+### 耗时及要求Duration & Pre-requisites
+
+**耗时**: 一到两个月
+**练习时间**: 不少于半小时
+**频率**: 至少每周一次 
+**灌肠/清理级别**: 第一级
+
+### 步骤/方法
+
+1. 不插入手指的情况下按摩肛门两分钟
+
+* 趁机与受沟通讨论扩张的方法和舒服的方式
+* 通过抚摸菊花开始，不放润滑剂（或者通过舔肛润滑）
+* 在准备插入的手上涂润滑剂，继续抚摸肛门，确保肛门和手都涂满润滑剂
+
+2. 把手指插入肛门并且轻轻按摩肛门
+
+* 如果受没有特别的要求，首先插入两个手指。
+* 温柔的向深处插入，直到手指全部插入
+* 弯曲第一个关节，向外拉，压迫肛门内部
+* 围绕整个肛穴转圈，并且持续拖拉动作大约2分钟
+
+3. 向肛门插入更多手指
+* 在肛门里分开手指做剪刀动作和扭动以扩张肛门括约肌
+* 拉出手指并且（像第二步一样的方法）插入更多手指
+* 重复托拉动作和抽插过程，直到四个手指全部进入肛门
+
+4. 整个插入肛门
+* 把拇指放在掌心，指向中指和无名指之间
+* 把拇指和其他手指插入，重复弯曲和拖拽动作
+* 插入受
+* 对受的肛门施加药理，并且鼓励受放松，忍耐一下压力尝试吞入整个手
+* 当受的肛门吞入你的手腕并且向里面吸入你的手时，弯曲指关节
+
     
-    ### Steps / Procedure
+#### 事后护理
+
+新的受需要至少至少一周才能再次练习。在他可以吞入一个拳头之前，即使使用了很多的润滑剂，他的菊穴也会有极小的裂口。
+
     
-    1.  Locate the second ring.
+#### 提示
     
-    ![](images/g_unavailable.png)
+* 对于很多受，抚摸肛门和肛洞会引起下意识的身体反射，放松肛门
+* 过度按摩肛门括约肌可能会引起肛门的刺激感，导致肛门收缩不易进入。避免不必要的手指刺激
+
+#### 掌控/进阶
+
+重复以上练习，直到受可以维持拳在菊洞里面呆上几分钟之久
+
+
+2 深入扩张
+------------------------
+
+*分类：有伴侣协助的扩张练习*
     
-    *   Massage/work the hole as needed to prepare for fist acceptance.
+### 工具/原料
+
+* 纸巾
+* Room Odorisers/Poppers
+* 放在受身下的毛巾或者隔水垫
+* 大量润滑剂，最好是拳交专用的或者混合类型的
+* 食用盐（如果采用J-lube作为润滑剂的话）
+
+###  目标
+
+* 深扩到肘部深度或者更深
+* 扩张第二和第三括约肌
+
+
+**耗时**：六个月到三年
+**每次练习耗时**: 至少1个小时
+**锻炼频度**：至少每周一次
+** 灌肠/清洗**：第三级
     
-    *   Push and retract (in gradual motion) until four fingers are inside the hole.
-    *   Twist and probe to locate the channel to the second ring and sigmoid colon.
+### 步骤/方法
+
+1.  定位第二括约肌
     
-    3.  Insert full hand into rectum.
+*   按摩或扩张第二括约肌以协助肛道（第二括约肌）准备接受手的插入。Massage/work the hole as needed to prepare for fist acceptance.
     
-    ![](images/g_unavailable.png)*   Position the thumb to rest parallel to the pointer finger.
-    *   Continue the push and retract motion from Step 1.
-    *   Pop the first ring and insert to the wrist.
+*   抽插手指，逐步增加以插入四个手指。Push and retract (in gradual motion) until four fingers are inside the hole.
+*   弯曲并摸索以确定进入第二括约肌和乙状结肠的的通道位置。Twist and probe to locate the channel to the second ring and sigmoid colon.
     
-    5.  Train the ring for penetration.
+    2. 整个手插入直肠 Insert full hand into rectum.
     
-    ![](images/g_unavailable)*   Insert two fingers into the ring and massage the about half of the opening with a curl and tug motion (no twisting of wrist).
-    *   Stretch the ring by opening your fingers in a scissor motion and _non-wrist based_ twist inside the hole.
-    *   Notify the Bottom you are going to rotate your hand 180 degrees.
-    *   Rotate the hand and repeat the tug/curl/pull-down and the scissoring on the remainder of the ring.
-    *   Repeat the tug/curl/pulldown and scissoring procedure until all four fingers are inside the ring.
+* 拇指保持与食指平行的姿势 Position the thumb to rest parallel to the pointer finger.
+*   如同步骤一一样，继续抽插动作 Continue the push and retract motion from Step 1.
+*   通过最外面的括约肌，插入肛门直到手腕 Pop the first ring and insert to the wrist.
     
-    7.  Prepare for popping the ring:
+    3. 训练第二括约肌以备插入.
     
-    ![](images/g_unavailable.png)*   Position the thumb to rest parallel to the pointer finger.
-    *   Position the hand for penetration
-    :
+* 向第二括约肌插入两个手指，并且通过弯曲/勾住的动作按摩到半开放状态（不要弯手腕）。
+* 通过在第二括约肌内做剪刀开合动作和手指扭曲动作（不要扭动手腕）来扩张第二括约肌
+* 告诉受你准备把手旋转180度
+* 把手翻转方向，并且通过勾住，弯曲，拉动以及剪刀开合动作扩张第二括约肌 .
+* 重复以上动作和过程知道四个手指进入第二括约肌的环里面
+
+4. 准备突破第二括约肌:
+* 使拇指与食指平行 .
+* 调整手的状态以准备插入 
+   * 如果攻使用右手插入的话，掌心应该对着受的右侧 .
+  * 如果用左手，掌心应当对着受的左侧.
+* 轻柔的抽插手的最宽的位置.
+* 确保你的手在通道的中间，没有压迫肠壁
+  
+5. 穿过括约肌:
+
+* 告诉受要准备最后的插入了Notify the Bottom to popper up for the final push.
+* 在轻柔的抽插过程中，插入到通过手腕的最宽处 In the gentle insertion and retraction, push past the widest part of your wrist.
+* 一旦通过手腕，要顺着肛道的方向并且停止动作  Follow the channel and stop moving once past the wrist.
+
+6. 穿过最内括约肌Pop the final ring:
+
+* （手）顺着肛道达到第三括约肌（可能需要练习数个月，这个过程中要翻转手臂）Follow the channel to the last ring (will take several months and inversion of arm).
+* 找到第三括约肌（脾弯曲）并且通过向下拉来练习 Locate and pull the ring (splenic flexure) down for training.
+* 反复进行进入第三括约肌的准备和练习动作Repeat the preparation/training process for popping the ring.
+* 使横结肠的位置移到一个较直的方向上（感觉不到肠壁的阻挡）Reposition the transcending colon into a straight path (no walls).
+* 如同第二部一样，穿过第三括约肌Repeat the ring popping process.
+  
+#### 事后护理
+
+对于深入扩张，无需特别的护理。通常受的开发程度都很高了，而且...No specific aftercare is needed for depth insertion. The stretch capacity is very high and the
     
-    *   For right-handed fisting, the palm to face the Bottom's right side.
-    *   For left-handed fisting, the palm will face the Bottom's left side.
-    
-    *   Insert and retract the hand in a gentle motion till at the widest point of hand.
-    *   Make sure your fingers are in the channel and not pressing up against a wall.
-    
-    9.  Pop the ring:
-    
-    *   Notify the Bottom to popper up for the final push.
-    *   In the gentle insertion and retraction, push past the widest part of your wrist.
-    *   Follow the channel and stop moving once past the wrist.
-    
-    11.  Pop the final ring:
-    
-    *   Follow the channel to the last ring (will take several months and inversion of arm).
-    *   Locate and pull the ring (splenic flexure) down for training.
-    *   Repeat the preparation/training process for popping the ring.
-    *   Reposition the transcending colon into a straight path (no walls).
-    *   Repeat the ring popping process.
-    
-    #### Aftercare
-    
-    No specific aftercare is needed for depth insertion. The stretch capacity is very high and the
-    
-    #### Tips
-    
+#### 提示
+* 当乙状结肠和横结肠之间不再有括约肌后，S形弯曲还是需要大量时间才能通过的
     *   While there is no ring where the sigmoid meets the descending colon, the S curve will require a lot of work to pass.
+* 从乙状结肠推进到到横结肠需要数个月的时间。注意一定要非常慢
     *   It will take months to move along the sigmoid and descending colon to reach the final ring. Go at a snail's pace.
     
-    #### Mastery/Progression
-    
-    Repeat this procedure until the Bottom can maintain a fist within his hole for several minutes.
+#### 熟练及进阶
+
+重复以上的练习直到受可以维持手在肛道中几分钟的时间。
     
 3.  ###### Category: Partnership Stretch Exercises
     
