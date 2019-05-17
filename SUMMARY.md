@@ -1,12 +1,16 @@
 # Summary
 
-* [Introduction](README.md)
+* [介绍](README.md)
 
-* [Fist training]
-  * [解剖学](fisting_train/tract.md)
-  * [Clean out](fisting_train/cleanout.md)
-  * [Developing](fisting_train/developing.md)
-  * [ExtermeFisting ](fisting_train/ExtermeFisting.md)
-  * [lubrication](fisting_train/lubrication.md)
+* [拳交练习]
+  
   * [扩张](fisting_train/stretching.md)
+  * [解剖学](fisting_train/tract.md)
+  * [清理工作](fisting_train/cleanout.md)
+  * [Developing](fisting_train/developing.md)
+  * [训练-晋级的方法和方式 ](fisting_train/ExtermeFisting.md)
+  * [润滑剂](fisting_train/lubrication.md)
+  * 
+  
+  
 

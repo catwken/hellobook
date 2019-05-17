@@ -1,5 +1,4 @@
-Preparations For Extreme Fisting
---------------------------------
+## 训练-晋级的方法和方式
 
 [Origian link](http://unabatedspectrum.com/dfc/as_train.html)
 
@@ -71,6 +70,8 @@ Make sure you douche, lube, and stretch appropriately.
 Under or over doing any of those activities can 
 result in a reduced training session.
 
+要开始针对超级拳手（快拳，双拳及深拳）的训练，需要先做些准备工作。 确保已经做到适度的灌肠，润滑和预扩张等。如果这些准备工作做得太过也可能影响训练。
+
 prior
 adj.
 先前的;较早的;在前的;优先的;占先的;较重要的;在前面的
@@ -127,66 +128,78 @@ adj.
 
 The following routines walk you through increasing depths:
 
-### Depth Routines
+### 深拳路线
 
-1.  ###### Category: Solo Exercises
-    
-    Mastering DP with Toys
-    ----------------------
-    
-    *   Supply Warehouse
-    *   One small, realistic dildo (less than 6.5 X 5)
-    *   One large, realistic dildo (minimum 8 X 6.5) with suction base if possible
-    *   Toy compatible lube
-    
-    *   Goals
-    *   Expanded stretch memory of anus and pressure tolerance of fist chute
-    *   Comfort with girth insertions (by self)
-    
-    *   Duration & Pre-requisites
-    *   Period: Three to Six Months
-    *   Session Duration: 1/2 Hour Minimum
-    *   Frequency: Once Weekly Minimum
-    *   Douche: [Level 1](as_wash.html#L1)
-    
-    *   [Print these instructions](http://unabatedspectrum.com/dfc/documents/training_mastering_dp_with_toys.pdf)
-    *   [View the demonstration](http://unabatedspectrum.com/dfc/video/dp_with_toys.mpg)
-    
-    ### Steps / Procedure
-    
-    1.  Open up the hole using the small and large dildos:
-    
-    ![](images/as_tra_depth_01-01.gif)
-    
-    *   Start with the small dildo using repeated in-and-out motions for several minutes.
-    *   Repeat with the larger dildo for the same duration until easily accommodated.
-    
-    3.  Stretch the inner anal canal and rectum:
-    
-    ![](images/as_tra_depth_01-02.gif)*   Return to the smaller dildo but use a broad series of motions and angles that are atypical of the in-and-out gyrations of standard fucking.
-    *   Finish with the larger toy using the same motions and angles.
-    
-    5.  Stretch the hole and first ring:
-    
-    ![](images/as_tra_depth_01-03.png)*   Start with the large dildo and insert a single finger along side it. The easiest spot of entry is usually the underside of the hole closest to the balls.
-    *   Continue circling the finger around the toy until completing a 360 degree circle.
-    *   Repeat circling and adding fingers until comfortable with the large toy and two or three fingers simultaneously.
-    
-    7.  Pop the hole and ring:
-    
-    ![](images/as_tra_depth_01-04.png)*   Start by inserting the larger dildo balls deep.
-    *   Re-apply lube to the hole.
-    *   Insert the smaller dildo on the upper side of the dildo (farthest from your balls).
-    *   Maintain insertion as long as possible.
-    *   Repeat, then engage in-and-out fuck motions.
-    
-    #### Aftercare
-    
-    In the beginning, you should wait at least a week before repeating a session. Even with proper lubrication, there will be micro-tears to your hole as you insert larger and larger toys.
-    
-    You may also feel the need to defecate even though you douched prior to the session. Your body is triggering autonomic peristalsis**_autonomic peristalis_** (noun)  
-          
-         autonomic peristalis: the wormlike movement by which tubular organs with both longitudinal and circular muscle fibers propel their contents, consisting of a wave of contraction passing along the tube. 
+*类别：自行练习*
+
+### 1. 熟练适应玩具的双插
+
+#### 工具及设备
+
+* 一个小号假阳具（小于17x4厘米）One small, realistic dildo (less than 6.5 X 5)
+
+* 一个较大的假阳具（至少是20x5厘米），最好有较大的底座
+
+* 可以用于玩具的润滑剂Toy compatible lube
+
+#### 目标
+
+* Expanded stretch memory of anus and pressure tolerance of fist chute
+
+*   Comfort with girth insertions (by self)
+
+* Duration & Pre-requisites
+
+* Period: Three to Six Months
+
+* Session Duration: 1/2 Hour Minimum
+
+* Frequency: Once Weekly Minimum
+
+*   Douche: [Level 1](as_wash.html#L1)
+
+* [Print these instructions](http://unabatedspectrum.com/dfc/documents/training_mastering_dp_with_toys.pdf)
+
+*   [View the demonstration](http://unabatedspectrum.com/dfc/video/dp_with_toys.mpg)
+
+### Steps / Procedure
+
+1.  Open up the hole using the small and large dildos:
+
+![](images/as_tra_depth_01-01.gif)
+
+*   Start with the small dildo using repeated in-and-out motions for several minutes.
+*   Repeat with the larger dildo for the same duration until easily accommodated.
+
+3.  Stretch the inner anal canal and rectum:
+
+![](images/as_tra_depth_01-02.gif)*   Return to the smaller dildo but use a broad series of motions and angles that are atypical of the in-and-out gyrations of standard fucking.
+*   Finish with the larger toy using the same motions and angles.
+
+5.  Stretch the hole and first ring:
+
+![](images/as_tra_depth_01-03.png)*   Start with the large dildo and insert a single finger along side it. The easiest spot of entry is usually the underside of the hole closest to the balls.
+*   Continue circling the finger around the toy until completing a 360 degree circle.
+*   Repeat circling and adding fingers until comfortable with the large toy and two or three fingers simultaneously.
+
+7.  Pop the hole and ring:
+
+![](images/as_tra_depth_01-04.png)*   Start by inserting the larger dildo balls deep.
+*   Re-apply lube to the hole.
+*   Insert the smaller dildo on the upper side of the dildo (farthest from your balls).
+*   Maintain insertion as long as possible.
+*   Repeat, then engage in-and-out fuck motions.
+
+#### Aftercare
+
+In the beginning, you should wait at least a week before repeating a session. Even with proper lubrication, there will be micro-tears to your hole as you insert larger and larger toys.
+
+You may also feel the need to defecate even though you douched prior to the session. Your body is triggering autonomic peristalsis**_autonomic peristalis_** (noun)  
+      
+
+```
+ autonomic peristalis: the wormlike movement by which tubular organs with both longitudinal and circular muscle fibers propel their contents, consisting of a wave of contraction passing along the tube. 
+```
 
 Sitting on the toilet for a few minutes or taking a shower may trigger your rectum to stop sending these impulses to your brain.
     
@@ -203,44 +216,66 @@ Sitting on the toilet for a few minutes or taking a shower may trigger your rect
     #### Mastery/Progression
     
     Repeat this procedure until you can take a double penetration whenever the opportunity arises.
-    
+
 2.  ###### Category: Partnership Exercises
     
-    Mastering DP with Boys (Men)
-    ----------------------------
+    ## 熟练接受男人的双插（双龙入洞）
     
-    *   Supply Warehouse
-    *   8 inch hung Top (or larger) with average-to-slender build - QTY: 1
-    *   5.5 inch hung limber Top (or larger) with average to slender build - QTY: 1
-    *   Copious amounts of lube, preferably silicone or hybrid variety
+    #### 工具箱
     
-    *   Goals
-    *   Expanded stretch memory of anus and pressure tolerance of fist chute
-    *   Comfort with girth insertion without control of the insertive objects
+    * 20厘米尺寸的大号攻（更大也可以），正常粗细。 数量一枚
     
-    *   Duration & Pre-requisites
-    *   Period: Concurrent to DP with Toys
-    *   Session Duration: ~1 Hour
-    *   Frequency: Whenever Available
-    *   Douche: [Level 1](as_wash.html#L1)
-    *   Mastery: DP with toys
+    * 13厘米的小号攻（更大也可），正常粗细。 数量一枚
     
-    *   [Print these instructions](documents/training_mastering_dp_with_boys_(men).pdf)
-    *   [View the demonstration](video/dp_with_boys(men).mpg)
+    * 大量润滑剂，最好是硅基或者混合的类型
     
-    ### Steps / Procedure
+    * 8 inch hung Top (or larger) with average-to-slender build - QTY: 1
     
-    1.  Bottom for each Top individually for five to ten minutes.
-    2.  Position the Tops for penetration:
+    * 5.5 inch hung limber Top (or larger) with average to slender build - QTY: 1
     
-    ![](images/as_tra_depth_02-01.png)*   Sit the hung Top on the side or base of the bed.
-    *   Lean him back until he is laying flat, with his legs still on the floor. The fold in his knees should rest against the bed.
-    *   Instruct the smaller Top to stand and wait nearby until you are ready for double penetration.
+    * Copious amounts of lube, preferably silicone or hybrid variety
     
-    4.  Mount the hung Top face to face.
+    * Goals
     
-    ![](images/as_tra_depth_02-02.gif)*   Slide down to the base of the cock (balls deep) and hold depth position.
-    *   Lean forward (nearly chest to chest) with the hung Top to accommodate the second Top.
+#### 目标
+
+* Expanded stretch memory of anus and pressure tolerance of fist chute
+  
+* Comfort with girth insertion without control of the insertive objects
+  
+* Duration & Pre-requisites
+  
+* Period: Concurrent to DP with Toys
+
+* Session Duration: ~1 Hour
+
+* Frequency: Whenever Available
+  
+* Douche: [Level 1](as_wash.html#L1)
+  
+    * Mastery: DP with toys
+    
+* [Print these instructions](documents/training_mastering_dp_with_boys_(men).pdf)
+  
+*   [View the demonstration](video/dp_with_boys(men).mpg)
+    
+### Steps / Procedure
+
+1.  Bottom for each Top individually for five to ten minutes.
+2.  Position the Tops for penetration:
+    
+
+![](images/as_tra_depth_02-01.png)
+*   Sit the hung Top on the side or base of the bed.
+*   Lean him back until he is laying flat, with his legs still on the floor. The fold in his knees should rest against the bed.
+*   Instruct the smaller Top to stand and wait nearby until you are ready for double penetration.
+    
+4.  Mount the hung Top face to face.
+    
+
+![](images/as_tra_depth_02-02.gif)
+*   Slide down to the base of the cock (balls deep) and hold depth position.
+*   Lean forward (nearly chest to chest) with the hung Top to accommodate the second Top.
     
     6.  Pop the hole and ring with the smaller Top.
     
@@ -261,7 +296,7 @@ Sitting on the toilet for a few minutes or taking a shower may trigger your rect
     #### Mastery/Progression
     
     As your stretch tolerance increases, you will be able to do various positions during DP.
-    
+
 3.  ###### Category: Partnership Exercises
     
     Mastering a Single Fist
@@ -382,7 +417,7 @@ Sitting on the toilet for a few minutes or taking a shower may trigger your rect
         most manufacturers create toys in this range; the Doc Johnson _Ballsy Supercock_ series maxes out at nine inches at full depth.
     *   Continue a gradual increase in size to full depth at 12 inches_**Minimum Size: 12 X 5**_  
         most manufacturers create double-ended toys of this size; the Doc Johnson _Double Headed_ and _Double Headed JR_ max out at eighteen and twelve inches respectively  
-          
+        
         the smaller colon snakes from Fort Troff are also suitable.
     *   Finish by piston-fucking the hole with the longer dildo until comfortable with the girth.
     
@@ -426,7 +461,7 @@ Sitting on the toilet for a few minutes or taking a shower may trigger your rect
 |Ballsy Super Cock | 4.87 | 8.31 | Doc Johnson|
 |    Double Header JR | 4.87 | 12| Doc Johnson|
 
-    
+
     Toy
     
     Girth
@@ -488,7 +523,7 @@ Sitting on the toilet for a few minutes or taking a shower may trigger your rect
     ![](images/as_toy_figure_dildos_lg_dean.png)
     
     ![](images/as_toy_figure_dildos_lg_holmes.png)
-    
+
 5.  ###### Category: Partnership Exercises
     
     Mastering Elbow Depth Insertion

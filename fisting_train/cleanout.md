@@ -1,56 +1,9 @@
-Storytime: My First Douche
---------------------------
-
-### The narrative about my first clean out
-
-_Even though..._ I'd lost my virginity years prior, and...
-
-_Even though..._ I'd had sex with a half-dozen guys, and...
-
-_Even though..._ I'd had a live-in boyfriend for several years...
-
-I had never heard of cleaning out. This all changed in Metarie, LA with a guy named Evan. Evan and I met on Manhunt™ several weeks prior to our first physical encounter. The delay in hooking up was due to a couple of things:
-
-1.  The 70 mile trek between Baton Rouge and New Orleans, and...  
-
-2.  My general inexperience in the gay universe—I was still very young and curious, and most of my sexual encounters to that point had been with guys that were _'New to this thing'_ (like me).
-
-Evan eventually invited me to New Orleans for an evening play date. I gladly made a trip to New Orleans, spending a day in the French Quarter seeing the sights, and then stopping in for an evening play session with him.
-
-Once I arrived at his house, we exchanged small talk, made out, and then he asked if I had prepared.
-
-> 'Prepared? Sure, I guess, I mean, I think so.' I stuttered.
-> 
-> 'I mean, have you cleaned out?'
-
-He must have noticed the puzzled look on my face, so he continued.
-
-> 'By that, I mean douching, so your ass is clean—cause I'm going to fuck the hell out of you.'
-> 
-> 'I don't know what that means. I've never douched.' I said, slightly embarrassed.
-> 
-> 'No worries, I'll show you the ropes.'
-
-Instead of throwing me out the door, he grabbed me by the hand, led me to the bathroom, got down on his knees, and rooted around beneath the sink: out came a box of Fleet enemas.
-
-Sensing my uneasiness, he introduced some foreplay into the routine. He pulled me down, and we made out for a bit before stripping each other naked. Then he had me roll over. Before I knew it, I was laying on my left side with a disposable enema being emptied into my ass. He refilled the enema and emptied it two more times before I needed to expel the water. Fortunately, I was clean.
-
-> He asked, 'Are you always that way?'
-> 
-> Without even thinking, I replied: 'Usually. About 90% of the time, I suppose.'
-> 
-> 'Your hole must be tight and talented!' he quipped back.
-
-And _even though..._ I hadn't learned sexual vocabulary such as 'hole' and 'tight', nor did I understand the implications of what he was saying, I responded.
-
-> 'I guess we'll find that out shortly!'
-
-We then fucked like dogs. If there was any _Hell_ inside me, he fucked every last bit of it out.
-
 Your Douching Routine
 ---------------------
 
-There is no universal douching method that works for everybody. In fact, douching routines vary greatly from person to person. For some individuals, the clean out process is a half-day event, while others can complete a full deep-douche in a matter of minutes.
+适用于每个人的灌肠方法并不完全相同，确切地说，每个人的灌肠方法变化很大。对于某些人来讲，清洗过程将会花掉大半天时间，然而其他人完成一次深入的冲洗也就是几分钟的事。
+
+
 
 A working knowledge of the fist chute helps you direct your douche activies appropriately and can make the difference between a five minute or a five hour douche routine. Toys can also play an important role in your douche routine to help validate you are ready to proceed playing.
 
@@ -70,16 +23,18 @@ To help answer some of those questions, included below is information on [Diet](
 Digestive Activity
 ------------------
 
-### Diet
+### Diet饮食控制/节食
 
-Some Bottoms advocate fasting twenty-four hours before a major play session and monitoring/adjusting food intake during the previous twenty-four hours. This is only necessary under the following circumstances:
+一些受提倡在重大的拳交活动前禁食24小时，并且在这之前的24小时控制饮食。但是这种方法只适用于以下情况
 
-*   Your play session will last more than four or five hours.
-*   You will not have access to the equipment or facilities to tidy up during the session.
-*   Your technique requires a [Level 3](#L3) douche due to your body mechanics.
-*   You are fisting at bicep or pit depths.
+* 拳交或其他活动会持续超过四五个小时
+* 在整个活动进行中没有可用的清理设施
+* 你的玩法需要第三极灌肠/清理
+* 深拳交到上臂或肩膀深度
 
 ![](images/as_was_diet_banana.png)
+
+即使符合以上列出的一些条件，也可能无需调整饮食或者节食。只要你了解我们的身体如何处理食物，可以参考下面的表格以便调整饮食
 
 Even if some of the above items are true, it may still not require a modification of your diet or even a fast. Only you will know how your body processes food. Refer to the [timing table](#timing) to help determine how to modify your diet.
 
@@ -105,15 +60,15 @@ For depth fisting, you should consider when to douche based on your diet, the ti
 |Meat|.5 to 5 Hours|6 - 8 Hours|10 - 24 Hours|
 |\*Nuts, Seeds, Beans, Grains |
 
-Techniques
+Techniques方法
 ----------
 
 1.  ###### Category: Cleansing
     
-Douche Level 1 - Cleaning for Shallow Depths
+第一级 - 浅表清理Douche Level 1 - Cleaning for Shallow Depths
 --------------------------------------------
-    
-Supply Warehouse
+
+Supply Warehouse设施及工具
 *   Preferred: Showershot with shallow nozzle
 *   Preferred: Fleet enema
 *   Acceptable: Disposable douche or portable bulb
@@ -124,6 +79,7 @@ Goals, Purpose & Duration
 *   Purpose: Shallow-fisting
 *   Duration: 3 to 10 Minutes
     
+
 [Print these instructions](documents/training_douche_level_1.pdf)
 [View the demonstration](video/douche_level_1.mpg)
     
@@ -186,9 +142,9 @@ Goals, Purpose & Duration
 [View the demonstration](video/douche_level_2.mpg)
     
 ### Steps / Procedure
-    
-    
-    
+
+
+​    
 Steps / Procedure
 
 1. Prepare the cleaning area:
@@ -219,7 +175,7 @@ Steps / Procedure
 - Monitor expelled water color and repeat steps two and three as needed until clean.
 
 #### Advice and Tips
-    
+
 Get over your squeamishness regarding fecal material and expel liquid content into your shower. Make sure your drain works well prior to starting a deep cleanse.
     
 Some guys will need a refresher douche and dildo fuck immediately before play to validate cleanliness.
@@ -802,3 +758,52 @@ Planned enhancements for this page include the following items:
 *   Add vendor purchasing list in Tools section
 
 © Fist Club | 2016 ☷☷ [Help Wanted](m_resources.html#content) ☷☷ [Content Violations?](m_resources.html#legal) 
+
+
+
+## Storytime: My First Douche
+
+### The narrative about my first clean out
+
+_Even though..._ I'd lost my virginity years prior, and...
+
+_Even though..._ I'd had sex with a half-dozen guys, and...
+
+_Even though..._ I'd had a live-in boyfriend for several years...
+
+I had never heard of cleaning out. This all changed in Metarie, LA with a guy named Evan. Evan and I met on Manhunt™ several weeks prior to our first physical encounter. The delay in hooking up was due to a couple of things:
+
+1. The 70 mile trek between Baton Rouge and New Orleans, and...  
+2. My general inexperience in the gay universe—I was still very young and curious, and most of my sexual encounters to that point had been with guys that were _'New to this thing'_ (like me).
+
+Evan eventually invited me to New Orleans for an evening play date. I gladly made a trip to New Orleans, spending a day in the French Quarter seeing the sights, and then stopping in for an evening play session with him.
+
+Once I arrived at his house, we exchanged small talk, made out, and then he asked if I had prepared.
+
+> 'Prepared? Sure, I guess, I mean, I think so.' I stuttered.
+>
+> 'I mean, have you cleaned out?'
+
+He must have noticed the puzzled look on my face, so he continued.
+
+> 'By that, I mean douching, so your ass is clean—cause I'm going to fuck the hell out of you.'
+>
+> 'I don't know what that means. I've never douched.' I said, slightly embarrassed.
+>
+> 'No worries, I'll show you the ropes.'
+
+Instead of throwing me out the door, he grabbed me by the hand, led me to the bathroom, got down on his knees, and rooted around beneath the sink: out came a box of Fleet enemas.
+
+Sensing my uneasiness, he introduced some foreplay into the routine. He pulled me down, and we made out for a bit before stripping each other naked. Then he had me roll over. Before I knew it, I was laying on my left side with a disposable enema being emptied into my ass. He refilled the enema and emptied it two more times before I needed to expel the water. Fortunately, I was clean.
+
+> He asked, 'Are you always that way?'
+>
+> Without even thinking, I replied: 'Usually. About 90% of the time, I suppose.'
+>
+> 'Your hole must be tight and talented!' he quipped back.
+
+And _even though..._ I hadn't learned sexual vocabulary such as 'hole' and 'tight', nor did I understand the implications of what he was saying, I responded.
+
+> 'I guess we'll find that out shortly!'
+
+We then fucked like dogs. If there was any _Hell_ inside me, he fucked every last bit of it out.

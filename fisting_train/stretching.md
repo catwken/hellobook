@@ -116,8 +116,12 @@
 **耗时**：六个月到三年
 **每次练习耗时**: 至少1个小时
 **锻炼频度**：至少每周一次
-** 灌肠/清洗**：第三级
-    
+**灌肠/清洗**：第三级
+
+注： 这里说的第二第三括约肌本质上是肠道的两个弯折，并不是真的括约肌。
+
+
+
 #### 步骤/方法
 
 ##### 1 定位第二括约肌
@@ -155,7 +159,7 @@
 * 在轻柔的抽插过程中，插入到通过手腕的最宽处 
 * 一旦通过手腕，要顺着肛道的方向并且停止动作 
 
-##### 6 穿过最内括约肌Pop the final ring:
+##### 6 穿过最内括约肌
 
 * （手）顺着肛道达到第三括约肌（可能需要练习数个月，这个过程中要翻转手臂）
 * 找到第三括约肌（脾弯曲）并且通过向下拉来练习 
@@ -202,7 +206,7 @@
 ### 方法/步骤
 
 ##### 1. 为双拳做的扩张准备
-   
+
 * 双手手掌相对，各自插入4个手指
 * 摩擦手掌，同时做旋转动作，以扩张肛门括约肌
 * 抽出手指，双手手掌向外插入
@@ -222,9 +226,9 @@
 ##### 4. 最终穿过括约肌
 
 * Popper up the Bottom with very long hit.
-* Position the thumb flat on top of the pointer finger.
-* Brace the hands and allow the Bottom to push back to accept the full wrist.
-* Encourge pistoning and wiggling left to right until wrist is accepted completely.
+* 拇指平放在食指上面Position the thumb flat on top of the pointer finger.
+* 撑开双手让受的肛门缩回以准备接受整个手
+* 通过活塞运动和左右摇摆直到整个手进入到手腕
   
 #### 事后护理
 
@@ -245,6 +249,10 @@
 
 玩具
 ----
+
+整个过程中的每一个练习步骤都应当使用尺寸越来越大的玩具。下面这些信息
+
+
 
 Every training routine should involve toys of progressively larger size. The following resources are available for integrating toys into your play sessions and preparatory activities:
 
