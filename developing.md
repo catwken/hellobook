@@ -1,7 +1,11 @@
 Developing Your Fisting Capacity
 --------------------------------
 
-![](images/as_lor_developing_rogerscale13.jpg) ![](images/as_lor_developing_rogerscale.jpg) ![](images/as_lor_developing_rogerscale15.jpg)
+![](./images/as-lor-developing-rogerscale13.jpg)
+
+![](./images/as-lor-developing-rogerscale.jpg) 
+
+![](./images/as-lor-developing-rogerscale15.jpg)
 
 For Bottoms, developing basic and extreme fisting skills takes a substantial amount of time——as well as——a focused and continual effort.
 
@@ -440,7 +444,7 @@ With your goals in mind and your groundwork complete, you can now go full fist. 
     *   Your first fist and subsequent training activities should involve a seasoned fister, especially as you progress to extreme depths. You should trust this man completely, as dangers increase the deeper he goes.
     *   If he is new partner, you'll need to direct him on position, speed, lubrication, and internal sensitivity. If he isn't willing to listen to your basic commands and instructions, he can't be trusted respect your limits. Your life is truly in his hands——or, is it that _his hand is truly in your life?_
     *   Trust and communication will augment both your arousal levels. As you perceive his piqued arousal, your mind will automatically relax your hole for him to penetrate deeper.
-        
+    
 2.  *   Quick Reference
     *   [Playrooms & Equipment](as_play.html)
     *   [Playing with Poppers](as_poppers.html)
