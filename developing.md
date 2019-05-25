@@ -156,7 +156,7 @@ Now that you have your goals set, it's time to do all of the preparatory work. T
     
     Kong
     
-    ![](images/as_rings_s_kong.png)
+    ![](./images/as-rings-s-kong.png)
     
     LENGTH: 6 in | 15 cm
     
@@ -168,7 +168,7 @@ Now that you have your goals set, it's time to do all of the preparatory work. T
     
     Holmes (UR3)
     
-    ![](images/as_rings_s_holmes.png)
+    ![](images/as-rings-s-holmes.png)
     
     LENGTH: 10 in | 25 cm
     
@@ -180,7 +180,7 @@ Now that you have your goals set, it's time to do all of the preparatory work. T
     
     Rambone
     
-    ![](images/as_rings_s_rambone.png)
+    ![](images/as-rings-s-rambone.png)
     
     LENGTH: 15 in | 40 cm
     
@@ -190,14 +190,14 @@ Now that you have your goals set, it's time to do all of the preparatory work. T
     
     PRICE: ~ $40.00 (US)
     
-    [![](images/as_toy_vendor_dj.png)](as_toys.html#manufacturers)
+    [![](images/as-toy-vendor-dj.png)](as_toys.html#manufacturers)
     
     Professional Grade
     ------------------
     
     Lampwick (S)
     
-    ![](images/as_rings_s_lampwick_small.png)
+    ![](images/as-rings-s-lampwick-small.png)
     
     LENGTH: 9 in | 23 cm
     
@@ -409,11 +409,11 @@ Now that you have your goals set, it's time to do all of the preparatory work. T
     
 *   Determine the best positions for penetration. In the beginning of toy play, you'll want to literally squat on your toys to position the fist chute anatomically for penetration. As you become more advanced, you'll be able to examine which fisting position works best for you:
 
-*   ![](images/as_rings_sling.gif) Sling (Supine) — Inside a sling, you will most likely be on your back (supine). Your guts will reposition position themselves based on your anatomy and the angle of the sling. Tops will generally need to be on their knees or on a small stool if elbow depth is the desired goal.
+*   ![](images/as-rings-sling.gif) Sling (Supine) — Inside a sling, you will most likely be on your back (supine). Your guts will reposition position themselves based on your anatomy and the angle of the sling. Tops will generally need to be on their knees or on a small stool if elbow depth is the desired goal.
     
-*   ![](images/as_rings_kneel_color.gif) Doggie — The furniture used with this position will affect how the top enters your hole. If on a fuck bench, he may sit or kneel on the floor. If on a bed, it is usually easiest if the top is also standing, sitting, or kneeling on the floor.
+*   ![](images/as-rings-kneel-color.gif) Doggie — The furniture used with this position will affect how the top enters your hole. If on a fuck bench, he may sit or kneel on the floor. If on a bed, it is usually easiest if the top is also standing, sitting, or kneeling on the floor.
     
-*   ![](images/as_rings_bed.gif) Bed (Supine) — I find this one of the easier positions for depth, especially when your ass is at the edge of the bed and the top is kneeling or sitting on a stool. If your bed accommodates it, the top can fist you while he sits on the bed or lays on his stomach (prone).
+*   ![](images/as-rings-bed.gif) Bed (Supine) — I find this one of the easier positions for depth, especially when your ass is at the edge of the bed and the top is kneeling or sitting on a stool. If your bed accommodates it, the top can fist you while he sits on the bed or lays on his stomach (prone).
     
 *   ![](images/as_rings_squat_color.gif) Squatting — This position works best on hard surfaces such as floors, countertops, or bathtub rims. It is an easier position for training for depth because the squat position realigns your bowels in a straighter path for penetration. The top should rest his elbow on the hard surface and let the bottom control speed and depth of penetration.
     

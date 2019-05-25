@@ -4,12 +4,12 @@
 
 * [拳交练习]
   
-  * [扩张-已完成](stretching.md)
-  * [解剖学](tract.md)
-  * [清理工作](cleanout.md)
-  * [Developing](developing.md)
-  * [训练-晋级的方法和方式](ExtermeFisting.md)
-  * [润滑剂](lubrication.md)
+  * [扩张-翻译完成](stretching.md)
+  * [解剖学-未完](tract.md)
+  * [清理工作-未完](cleanout.md)
+  * [Developing-未完](developing.md)
+  * [训练-晋级的方法和方式-未完](ExtermeFisting.md)
+  * [润滑剂-未完](lubrication.md)
 
   
   
