@@ -69,8 +69,8 @@ Techniques方法
 --------------------------------------------
 
 Supply Warehouse设施及工具
-*   Preferred: Showershot with shallow nozzle
-*   Preferred: Fleet enema
+*   Preferred: Showershot with shallow nozzle推荐： 带喷嘴的冲洗头
+*   Preferred: Fleet enema  推荐：
 *   Acceptable: Disposable douche or portable bulb
 *   Optional: Lube
 
