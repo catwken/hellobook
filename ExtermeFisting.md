@@ -137,129 +137,116 @@ The following routines walk you through increasing depths:
 #### 工具及设备
 
 * 一个小号假阳具（小于17x4厘米）One small, realistic dildo (less than 6.5 X 5)
-
 * 一个较大的假阳具（至少是20x5厘米），最好有较大的底座
-
 * 可以用于玩具的润滑剂Toy compatible lube
 
 #### 目标
 
-* Expanded stretch memory of anus and pressure tolerance of fist chute
+* 训练肛道对于扩张的身体记忆及对于压力的容忍度
+* 适应粗大物体的插入（自行插入）
 
-*   Comfort with girth insertions (by self)
+**时间和要求**
+* 时间：三到六个月
+* 训练用时：不少于半小时
+* 频度：至少每周一次
+* 灌肠清理：第一级
 
-* Duration & Pre-requisites
+[PDF版指南](http://unabatedspectrum.com/dfc/documents/training_mastering_dp_with_toys.pdf)
 
-* Period: Three to Six Months
+[视频演示]](http://unabatedspectrum.com/dfc/video/dp_with_toys.mpg)
 
-* Session Duration: 1/2 Hour Minimum
+### 方法步骤
 
-* Frequency: Once Weekly Minimum
-
-*   Douche: [Level 1](as_wash.html#L1)
-
-* [Print these instructions](http://unabatedspectrum.com/dfc/documents/training_mastering_dp_with_toys.pdf)
-
-*   [View the demonstration](http://unabatedspectrum.com/dfc/video/dp_with_toys.mpg)
-
-### Steps / Procedure
-
-1.  Open up the hole using the small and large dildos:
+1. 使用小尺寸的仿真阳具和大尺寸的开发菊花:
 
 ![](images/as_tra_depth_01-01.gif)
 
-*   Start with the small dildo using repeated in-and-out motions for several minutes.
-*   Repeat with the larger dildo for the same duration until easily accommodated.
+* 首先使用较小的仿真阳具重复出入动作几分钟时间
+* 使用较大的阳具重复上面的步骤直到适应为止
 
-3.  Stretch the inner anal canal and rectum:
+2. 开发肛道内部和直肠:
 
-![](images/as_tra_depth_01-02.gif)*   Return to the smaller dildo but use a broad series of motions and angles that are atypical of the in-and-out gyrations of standard fucking.
-*   Finish with the larger toy using the same motions and angles.
+![](images/as_tra_depth_01-02.gif)
 
-5.  Stretch the hole and first ring:
+* 重新使用较小的仿真阳具，用更大的幅度和不同角度进行不规则的旋转及出入动作
+* 用同样的方法练习较大的阳具.
 
-![](images/as_tra_depth_01-03.png)*   Start with the large dildo and insert a single finger along side it. The easiest spot of entry is usually the underside of the hole closest to the balls.
-*   Continue circling the finger around the toy until completing a 360 degree circle.
-*   Repeat circling and adding fingers until comfortable with the large toy and two or three fingers simultaneously.
+3. 开发肛穴和括约肌:
 
-7.  Pop the hole and ring:
+![](images/as_tra_depth_01-03.png)
 
-![](images/as_tra_depth_01-04.png)*   Start by inserting the larger dildo balls deep.
-*   Re-apply lube to the hole.
-*   Insert the smaller dildo on the upper side of the dildo (farthest from your balls).
-*   Maintain insertion as long as possible.
-*   Repeat, then engage in-and-out fuck motions.
+* 首先使用较大的阳具，插入时在旁边同时插入一个手指。一般来说比较容易进入的位置在菊穴的下方，或者说靠近蛋蛋的方向
+* 让手指围绕阳具旋转，完成整个360度的一周.
+* 重复旋转并增加更多手指，直到能够和较大的阳具同时插入两到三个手指而无不适感.
 
-#### Aftercare
+7. 扩大菊洞和环状肌肉:
 
-In the beginning, you should wait at least a week before repeating a session. Even with proper lubrication, there will be micro-tears to your hole as you insert larger and larger toys.
+![](images/as_tra_depth_01-04.png)
 
-You may also feel the need to defecate even though you douched prior to the session. Your body is triggering autonomic peristalsis**_autonomic peristalis_** (noun)  
-      
+* 首先把较大的阳具插入到根部（淡淡的深度）
+* 重新润滑菊穴
+* 在较大的阳具上方（远离蛋蛋的方向）插入较小的阳具
+* 尽可能长时间保持插入状态
+* 重复以上练习，然后开始出出入入的操作
 
-```
+
+#### 调养
+
+开始阶段，再次训练前需要休养至少一周时间。即使很好的使用了润滑剂，在菊洞插入越来越大的工具时，都会有细微的撕裂。
+即使在练习前灌肠了，在过程中也可能会感觉到需要排泄。因为你的身体发生了反射性的肠蠕动。
+
  autonomic peristalis: the wormlike movement by which tubular organs with both longitudinal and circular muscle fibers propel their contents, consisting of a wave of contraction passing along the tube. 
-```
 
-Sitting on the toilet for a few minutes or taking a shower may trigger your rectum to stop sending these impulses to your brain.
-    
-    #### Tips
-    
-    *   Always use copious amounts of lube.
-    *   Parasympathetic nerves **_parasympathetic nerves_** (noun)  
-        nerves responsible for regulating the body's unconscious actions, such as sexual arousal, digestion, or defecation  
-          
-        in the rectum, these nerves are initially triggered at 18 torrs (mm Hg) of pressure—which sends a defecation impulse to the brain  
-          
-        at 55 torrs, the contents of the rectum are expelled automatically (you shit your pants) trigger your brain to contract and relax the rectum and anus. Conducting the DP procedure alone allows you to increase the dimensions of your chute as well as the pressure point before your body triggers peristalsis.
-    
-    #### Mastery/Progression
-    
-    Repeat this procedure until you can take a double penetration whenever the opportunity arises.
 
-2.  ###### Category: Partnership Exercises
-    
-    ## 熟练接受男人的双插（双龙入洞）
-    
-    #### 工具箱
-    
-    * 20厘米尺寸的大号攻（更大也可以），正常粗细。 数量一枚
-    
-    * 13厘米的小号攻（更大也可），正常粗细。 数量一枚
-    
-    * 大量润滑剂，最好是硅基或者混合的类型
-    
-    * 8 inch hung Top (or larger) with average-to-slender build - QTY: 1
-    
-    * 5.5 inch hung limber Top (or larger) with average to slender build - QTY: 1
-    
-    * Copious amounts of lube, preferably silicone or hybrid variety
-    
-    * Goals
-    
+在马桶上坐几分钟或冲澡可以使直肠停止向大脑报告这种神经冲动
+
+#### 提示
+
+* 记得一定要使用足量的润滑剂
+* 副交感神经
+副交感神经用于调节身体无意识的行为，例如性冲动，消化和排便。 对于直肠而言，副交感神经会在内部压力达到18托（毫米汞柱）时触发，并且向大脑发送排便的信号。当压力达到55托时，副交感神经会使直肠自动排空（拉裤子里）。
+
+	nerves responsible for regulating the body's unconscious actions, such as sexual arousal, digestion, or defecation
+    in the rectum, these nerves are initially triggered at 18 torrs (mm Hg) of pressure—which sends a defecation impulse to the brain
+    at 55 torrs, the contents of the rectum are expelled automatically (you shit your pants) trigger your brain to contract and relax the rectum and anus. Conducting the DP procedure alone allows you to increase the dimensions of your chute as well as the pressure point before your body triggers peristalsis.
+
+#### 进阶
+
+当习惯以后，无论何时有机会的话，都应该尝试以上的训练直到可以插入两个阳具
+
+
+## 熟练接受男人的双插（双龙入洞）
+
+*类别: 在他人协助下的练习*
+
+#### 工具箱
+
+* 20厘米尺寸的大号攻（更大也可以），正常粗度， 数量一枚
+* 13厘米的小号攻（更大也可），正常粗细， 数量一枚
+* 大量润滑剂，最好是硅基或者混合的类型
+
 #### 目标
 
-* Expanded stretch memory of anus and pressure tolerance of fist chute
-  
-* Comfort with girth insertion without control of the insertive objects
-  
-* Duration & Pre-requisites
-  
-* Period: Concurrent to DP with Toys
+* 训练肛道对于扩张的身体记忆及对于压力的容忍度
+* 适应不可控制的粗大物体的插入
 
-* Session Duration: ~1 Hour
+#### 时间和要求
 
-* Frequency: Whenever Available
-  
-* Douche: [Level 1](as_wash.html#L1)
-  
-    * Mastery: DP with toys
-    
-* [Print these instructions](documents/training_mastering_dp_with_boys_(men).pdf)
-  
-*   [View the demonstration](video/dp_with_boys(men).mpg)
-    
-### Steps / Procedure
+* 时间：可以跟用工具双插的训练同期进行
+* 训练时间：大约一小时
+* 频度：无论何时有可能的话
+* 灌肠，清理：第一级
+* 精通：工具双插
+
+[PDF版](documents/training_mastering_dp_with_boys_(men).pdf)
+[演示视频](video/dp_with_boys(men).mpg)
+
+### 方法步骤
+
+1. 受首先分别为每个攻服务五到十分钟
+2. 把攻摆在攻击的位置
+* 让大攻坐在床边上
+* 让他向后倒，摆成平躺的位置，这是他的脚仍然垂在地上。
 
 1.  Bottom for each Top individually for five to ten minutes.
 2.  Position the Tops for penetration:
