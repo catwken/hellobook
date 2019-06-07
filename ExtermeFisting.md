@@ -12,17 +12,11 @@
 
 #### Partner Selection
 
-You will need to find a skilled partner 
-for many of your depth or girth fisting routines. 
-This individual should be somebody who understands 
-not only the basics of fisting, 
-but also understands you. 
-He should be able to always assess your mental 
-and physical state by understanding your body language. 
-You should also be able to trust your partner 
-with your life.
+在拳交的深入训练和尺寸扩张训练过程中，最好能够有一个有经验的助手。这个助手不但要能够非常理解拳交的各种知识，还要对被训练者有非常深入的了解。他要有能力通过你的身体语言了解精神和身体状况。被训练者需要需要能够非常信任这个助手。
 
 #### Roadmaps and Communication
+
+对于拳受来说，丢与
 
 It is helpful as a Bottom to document the anatomy of your fist chute to assist others in your fisting expeditions. A good road map includes the following:
 
@@ -207,8 +201,8 @@ The following routines walk you through increasing depths:
 副交感神经用于调节身体无意识的行为，例如性冲动，消化和排便。 对于直肠而言，副交感神经会在内部压力达到18托（毫米汞柱）时触发，并且向大脑发送排便的信号。当压力达到55托时，副交感神经会使直肠自动排空（拉裤子里）。
 
 	nerves responsible for regulating the body's unconscious actions, such as sexual arousal, digestion, or defecation
-    in the rectum, these nerves are initially triggered at 18 torrs (mm Hg) of pressure—which sends a defecation impulse to the brain
-    at 55 torrs, the contents of the rectum are expelled automatically (you shit your pants) trigger your brain to contract and relax the rectum and anus. Conducting the DP procedure alone allows you to increase the dimensions of your chute as well as the pressure point before your body triggers peristalsis.
+	in the rectum, these nerves are initially triggered at 18 torrs (mm Hg) of pressure—which sends a defecation impulse to the brain
+	at 55 torrs, the contents of the rectum are expelled automatically (you shit your pants) trigger your brain to contract and relax the rectum and anus. Conducting the DP procedure alone allows you to increase the dimensions of your chute as well as the pressure point before your body triggers peristalsis.
 
 #### 进阶
 
@@ -246,64 +240,73 @@ The following routines walk you through increasing depths:
 1. 受首先分别为每个攻服务五到十分钟
 2. 把攻摆在攻击的位置
 * 让大攻坐在床边上
-* 让他向后倒，摆成平躺的位置，这是他的脚仍然垂在地上。
-
-1.  Bottom for each Top individually for five to ten minutes.
-2.  Position the Tops for penetration:
-    
+* 让他向后倒，摆成平躺的位置，这是他的脚仍然垂在地上。确保膝盖的背面靠在床上
 
 ![](images/as_tra_depth_02-01.png)
-*   Sit the hung Top on the side or base of the bed.
-*   Lean him back until he is laying flat, with his legs still on the floor. The fold in his knees should rest against the bed.
-*   Instruct the smaller Top to stand and wait nearby until you are ready for double penetration.
-    
-4.  Mount the hung Top face to face.
+*   让小号攻站在旁边等受做好双插的准备工作
+3.  受用面对面的姿势上大号攻
     
 
 ![](images/as_tra_depth_02-02.gif)
-*   Slide down to the base of the cock (balls deep) and hold depth position.
-*   Lean forward (nearly chest to chest) with the hung Top to accommodate the second Top.
-    
-    6.  Pop the hole and ring with the smaller Top.
-    
-    ![](images/as_tra_depth_02-03.gif)*   Request the smaller Top initiate penetration sequence. The easiest spot of entry is usually the far side of your hole (farthest from the balls).
-    *   Push back onto the smaller cock until both poles are balls deep.
-    
-    8.  Fuck at various speeds or modified positions as desired.
-    
-    #### Aftercare
-    
-    As with DP with toys, in the beginning you should wait at least a week before repeating a session. Excited Tops can and heated environments can introduce micro-tears to your hole—especially since you aren't controlling the thrust.
-    
-    #### Tips
-    
-    *   Expect some awkwardness: 1) Not all Tops can position themselves for DP. 2) Positions can make it hard for the bigger Top to thrust. 3) Newbies to the experience cum quickly.
-    *   In threeways, most guys will DP if there is a willing/able Bottom. Generally, the Bottom has to introduce the topic and initiate the penetration sequence.
-    
-    #### Mastery/Progression
-    
-    As your stretch tolerance increases, you will be able to do various positions during DP.
+* 让他的阳具连根进入（坐到蛋蛋的深度），保持这个深度
 
-3.  ###### Category: Partnership Exercises
+* 向前倾到接近胸部相互靠近的姿势，以便另外一个攻进入攻击位置
+
+4. 让另一个攻插入.
+
+  ![](images/as_tra_depth_02-03.gif)
+
+* 让小号攻准备开始插入过程。一般来说，最容易进入的位置在菊穴的最远端（离蛋蛋最远的位置）.
+* 让小号攻继续插入直到两个阳具都连根进入.
+
+5. 只要受还想要，使用各种不同的力度继续干吧，也可以各种调整姿势.
+
+#### 事后调养
+
+和用工具双插一样，在尽性玩过后需要至少一周时间才能再玩。过于激动的攻们在这么刺激的环境下，会给菊穴带来相当多的微小撕裂，尤其是受无法控制抽插进度的时候。
+
+#### 提示
+
+* 可能的尴尬情况
+  1. 不是所有的攻都能做得到双插的姿势
+  2. 在某些姿势下，大号攻可能没法抽动
+  3. 对双插没太多经验的新人可能会秒射
+
+* 三人行的话，如果有受乐意或者能接受，大部分攻都应该会愿意玩双龙的。一般情况下，应该由受来提出双龙的建议并且控制插入的节奏。
+
+#### 掌控/进阶
+
+当扩张到更大尺寸，能够更容易接受的情况下，可以在双龙过程中尝试各种不同的姿势
+
+### 接受单拳
+
+*类型：需要伴侣的训练*
+
+工具箱
+
+*  小手拳攻一枚
+*  小号的假阳具和大号的假阳具
+*  纸巾
     
-    Mastering a Single Fist
-    -----------------------
-    
-    *   Supply Warehouse
-    *   Small hand Top - QTY: 1
-    *   Small and large dildos
-    *   Paper towels
-    *   Room Odorisers/Poppers
-    *   Towels or pads to place beneath the Bottom
-    *   Copious amounts of lube, preferably specialty or hybrid variety
-    *   Table salt (if using J-lube)
-    
-    *   Goals
-    *   Expanded memory of anus and fist chute, specifically the rectum
-    *   Sustained reception of the hand/fist
-    *   Tolerance to movement inside the rectum
-    *   Comfort with the Top/Bottom fisting relationship
-    
+*   Room Odorisers/Poppers
+*   Towels or pads to place beneath the Bottom
+*   Copious amounts of lube, preferably specialty or hybrid variety
+*   Table salt (if using J-lube)
+
+** 目标**
+
+* 对于扩张肛门和肛道的身体记忆，特别是直肠
+* 承受手或者拳头的插入
+* 能够容忍手或拳头在直肠内移动
+* 适应攻/受之间的拳交关系
+
+**时间**
+任务周期： 三道六个月
+任务时间：至少15到30分钟
+频率：半月一次
+灌肠/清洗：第一级
+
+
     *   Duration & Pre-requisites
     *   Period: Three to six months
     *   Session Duration: 15-30 Minute Minimum
