@@ -9,10 +9,12 @@ A working knowledge of the fist chute helps you direct your douche activies appr
 
 It will likely take you several months or even years to develop a routine that works for you, especially for depth play. To help you develop your routine, consider the following questions:
 
-1.  How does my body react to...
-    *   The food I eat? Are certain foods better than others for helping me clean out? What can I eat before play and when can I eat it?
-    *   Pharmaceutical supplements? Does fiber or certain laxatives cause irritation inside me? What about anti-diarrheals? Do these items affect me negatively and prevent a good fisting session?
-    *   Water being injected into my ass? Is it readily expel by my system, or do I need to work and massage it out?
+我们可能会花费几个月甚至几年的时间才能开发出适合自己的一个方法和流程，尤其是对于深拳情况。想想下面这些问题，会对研发出适合自己的流程有很大帮助
+
+1.  How does my body react to... 我的身体对于这些情况的反应.....
+    *   我吃过得东西？ 是不是有某种食物对于我的清理工作有益？ 我在进行拳交前应该吃什么？应该在什么时候进食？
+    *   Pharmaceutical supplements? Does fiber or certain laxatives cause irritation inside me? What about anti-diarrheals? Do these items affect me negatively and prevent a good fisting session? 药物作用： 纤维素或者某些通便的药品是否会刺激你的肠道？治疗腹泻的药品呢？这些药品是否会影响我的身体，阻止我完成一次完美的拳交计划呢？
+    *   Water being injected into my ass? Is it readily expel by my system, or do I need to work and massage it out? 向屁股里面注水吗？ 水分很容易从身体里面排出还是需要努力甚至按摩才行？
     *   Water temperature and salinity content? Does hot water irritate my hole? How about cold water? Or hard/soft water?
     *   Different douche nozzles? Are there certain materials or styles that agitate my hole unnecessarily?'
 2.  How much prep time do I need based on my body's reaction to douching activities?

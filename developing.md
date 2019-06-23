@@ -1,11 +1,11 @@
 Developing Your Fisting Capacity
 --------------------------------
 
-![](./images/as-lor-developing-rogerscale13.jpg)
+![](/images/as-lor-developing-rogerscale13.jpg)
 
-![](./images/as-lor-developing-rogerscale.jpg) 
+![](/images/as-lor-developing-rogerscale.jpg) 
 
-![](./images/as-lor-developing-rogerscale15.jpg)
+![](/images/as-lor-developing-rogerscale15.jpg)
 
 For Bottoms, developing basic and extreme fisting skills takes a substantial amount of time——as well as——a focused and continual effort.
 
@@ -48,23 +48,34 @@ Hands come in four sizes: small, medium, large, and extra-large. Your anatomy ma
 
 Will your fisting be intimacy-based, masochistic, or a combination thereof?
 
+你的拳交行为中是否有亲昵的，虐待的或者虐恋等矛盾的关系在里面呢？
+
 Many people identify fisting as a BDSM behavior, when typically, it is not. The relationship is based on trust, and the bottom is often in control. Shallower, anonymous fisting may be more sadistic/masochistic, but depth insertions usually have a more intimate relationship.
+
+很多人把拳交归类为BDSM行为，一般情况下不是这样的。这种行为关系其实是建立在信任基础上的，通常情况下是受在控制整个过程。某些浅的，多人拳交的行为可能会有更多性虐/受虐的成分，但是深拳插入的双方一般都会有更加亲密的关系。
 
 Do you want to wander into the wilder side?
 
-Apart from depth fisting, four other categories of fisting push the envelop. Grudge, punch, piss, and shit fisting. Grudge fisting is anonymous and purely carnal without mental or sexual connection. Punch and piss fisting are closely related. Piss fisting (where the bottom urinates while taking a fist) usually occurs only during punch fisting. Shit fisting is highly dangerous, as a dirty hole accepts less lube than normal fisting.
+不同于深拳，还有四种拳交的终极玩法，它们是 强制，快拳，尿拳和黄金拳. 强制拳交纯粹是为了肉体的欲望，并没有精神或性方面的关系。快拳和拳尿有很密切的关系，拳尿（就是指受在被拳的时候控制不住的尿出）一般会在快拳的时候发生。黄金拳会有更大的危险，因为与正常的拳交相比，脏的菊花里面在拳交时不能容纳那么多润滑剂.
 
 Do you want to develop a prolapse?
+
+想要玩脱肛吗？
 
 Punching and pumping a hole results in a prolapse of the rectum, creating a rosebud. A few kinksters like licking/sucking a prolapsed bud.
 
 ### Define Your Boundaries
+
+定义你的底线
+
 
 Goal
 
 Description / Considerations
 
 Who do you want fisting your hole?
+
+希望谁来做你的拳攻？
 
 For depth fisting, you should find consistent regular ffbuds to train your hole. Anonymous sex may be exhilarating, but a level of confidence needs to exist between fisting partners to expand depth potential. On a side note, men who engage in fisting generally challenge most sexual norms and tend to have vibrant and distinct personalities. Drop any pretentiousness or judgement of personality. I've found that the most eccentric guys are often the most knowledgeable and have your interest at heart.
 
@@ -87,20 +98,26 @@ Perforation of the colon and infection due to fecal contamination are deadly. An
 Step 2: Lay the Groundwork
 --------------------------
 
+打好基础
+
 Now that you have your goals set, it's time to do all of the preparatory work. This process may take years before you can master a fist at greater depths.
+
+现在我们已经明确设定好目标了，这时需要做一些准备工作，在能够达到极深拳的水平之前，这些准备工作可能要花费几年的时间。
 
 *   Quick Reference
 *   [Art & Science](m_artscience.html)
 
 2.  Obtain Knowledge — Familiarize yourself with fisting practices, techniques, and concerns.  
     Watch fisting porn and use this website as resources for your research.
-    
+
+用知识武装自己 - 要让自己了解拳交的概念，技术和实践，在探索和研究是可以参考拳交视频，也可以参考本网站的资源。
 
 *   Quick Reference
 *   [Wash and Go](as_wash.html)
 
 4.  Clean Out — Purchase (and use) an advanced douche system (enemas and douche bulbs are insufficient). Learn how to clean out all the way to the transverse colon. Determine eating habits and patterns that facilitate your clean out routines.
     
+清理-
 
 *   Quick Reference
 *   [Stretching](as_stretch.html)
