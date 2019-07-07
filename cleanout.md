@@ -31,7 +31,7 @@ Digestive Activity
 
 * 拳交或其他活动会持续超过四五个小时
 * 在整个活动进行中没有可用的清理设施
-* 你的玩法需要第三极灌肠/清理
+* 你的玩法需要第三级灌肠/清理
 * 深拳交到上臂或肩膀深度
 
 ![](images/as_was_diet_banana.png)
@@ -42,9 +42,15 @@ Even if some of the above items are true, it may still not require a modificatio
 
 Monitor your hydration and electrolyte balance on the day of your fisting. Your fast and douche technique can result in a depletion of essential minerals and fluids. After your session is over, help yourself to a banana to restore potassium or to yogurt to help restore culture to your intestine (even though it's nearly impossible to douche out your existing culture).
 
+在进行拳交的当日，注意身体摄入的水量和电解质平衡。快速的灌肠可能会导致身体排出大量电解质和体液。当拳交活动后，可以吃一个香蕉以补充钾元素或者喝酸奶以恢复肠道内的益生菌(尽管灌肠基本不会影响肠道菌群)
+
 ### Timing
 
-Cleaning out involves knowing your body well, including patterns in your digestive activity.
+Cleaning out involves knowing your body well, including patterns in your digestive activity. 
+
+有效的清洗需要对身体的深入了解，包括消化系统的工作方式。
+
+科学研究表面，食物通常需要33小时通过整个消化系统；然而，这个时间与你的饮食有关。淀粉类食物比水果和蔬菜需要的时间更长，
 
 From a scientific standpoint, it usually takes thirty-three hours for food to pass all the way through the system; however, this varies based on your [diet](#diet). Starchy foods take longer than fruits and vegetables, and dairy foods and meat elongate the the timing of your bowel movements. Once food reaches the small intestine, it follows the first-in, first out rule (there are no passing lanes).
 
@@ -71,7 +77,7 @@ Techniques方法
 --------------------------------------------
 
 Supply Warehouse设施及工具
-*   Preferred: Showershot with shallow nozzle推荐： 带喷嘴的冲洗头
+*   Preferred: Showershot with shallow nozzle推荐： 带较短喷嘴的冲洗头
 *   Preferred: Fleet enema  推荐：
 *   Acceptable: Disposable douche or portable bulb
 *   Optional: Lube
@@ -89,14 +95,22 @@ Goals, Purpose & Duration
 
 1.  Prepare the cleaning area:
 
-![](images/as_was_techniques_01-01.gif)*   Attach the appropriate nozzle to your showershot. If desired, apply lube to nozzle.
+![](images/as_was_techniques_01-01.gif)*   
+
+Attach the appropriate nozzle to your showershot. If desired, apply lube to nozzle.
+
+把合适的灌肠喷嘴连接到出水管上，如果有必要，在喷嘴上抹润滑剂
 
 *   Adjust shower temperature to 70°F / 21°C.
+*   调整水温到21摄氏度
 *   Adjust pressure to a slow to moderate flow (WARNING: high flows can damage your insides).
+*   调整水流的压力，到稳定的中等流速（注意：水流过大的话，可能会弄伤身体内部）
 
-2.  Take a first pass at the anal canal and rectum:
+2.  Take a first pass at the anal canal and rectum: 第一步来冲洗肛门和直肠部分
 
-![](images/as_was_techniques_01-02.gif)*   In your most comfortable position (laying, sitting, or standing), insert the enema and empty it's contents into your fist chute.
+![](images/as_was_techniques_01-02.gif)*   
+
+In your most comfortable position (laying, sitting, or standing), insert the enema and empty it's contents into your fist chute.
 
 *   Wait several minutes and expel (in either toilet or drain).
 *   In the same position, insert the douche two to three inches deep.
