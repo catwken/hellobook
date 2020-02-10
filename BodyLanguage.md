@@ -1,14 +1,14 @@
 # Body Language
 
-## Non-Verbal Signs and Signals
+## 言语之外的迹象和征兆Non-Verbal Signs and Signals
 
 Non-verbal communication during a fisting session can communicate  pleasure, pain, and passion. Specific actions or observed reactions  relay how a fisting procession should proceed.
 
 ### Hand Signals
 
-When fisting, a Bottom can use non-verbal cues to communicate with the Top. The following cues are best relayed face-to-face:
+在进行拳交时，受可以通过肢体语言与攻进行沟通When fisting, a Bottom can use non-verbal cues to communicate with the Top. The following cues are best relayed face-to-face:
 
-#### Forward/Deeper
+#### Forward/Deeper进一步/更深入
 
 Signaling 'come forward' with the hand indicates to increase pressure  and forward motion deeper into the fist chute. The speed of the signal  can indicate the pace of progression.
 
@@ -36,7 +36,7 @@ Tapping the Top's leg, thigh or arm could mean a variety of things.  Discuss bef
 
 'Where, when, and how we look at others are all part of the  phenomenon of eye gaze, one of our most important and primitive means of  communication. Gaze plays a crucial role in conversation. Looking at  another person is a way of getting feedback on particular points. It is  also used as a synchronizing signal.[[1\]](https://web.archive.org/web/20190108210616/http://unabatedspectrum.com/dfc/as_body.html#R1) 
 
-In fisting, people can communicate subconsciously via eye contact via  pupil dialation, blinking, squinting, and opening/closing eyes.  
+In fisting, people can communicate subconsciously via eye contact via  pupil dilation, blinking, squinting, and opening/closing eyes.  
 
 - Pupil Dialation. Pupil dialation  indicates sexual arousal on part of both the Top and Bottom. Large  pupils in a Bottom usually increases the level of attraction by the Top.
 - Gazing. Gazing and averting gaze can  indicate the following messages: invitation into personal space  (including the fist chute), determinination of power roles and power  relinquishments, and trust alignment through calmning persuasion. 
