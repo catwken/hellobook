@@ -227,10 +227,10 @@
 *  小手拳攻一枚
 *  小号的假阳具和大号的假阳具
 *  纸巾
-*   Room Odorisers/Poppers
-*   Towels or pads to place beneath the Bottom
-*   Copious amounts of lube, preferably specialty or hybrid variety
-*   Table salt (if using J-lube)
+*   空气清新剂/Poppers(译者:不知道为啥要用空气清新剂，难道替代Popper吗？）
+*   垫在受身下的毛巾或垫子，防止润滑剂或肠液污染床铺
+*   大量的润滑剂，建议用拳交专用的润滑剂或者混合型的
+*   如果用了J Lube（拳交粉，魔术粉）的话，需要准备一些食盐
 
 ** 目标**
 
@@ -250,24 +250,26 @@
 
 #### 步骤/方法
 
-1.  Communicate limits and expectations and prepare the environment:
+1.  参与者要提前交流，了解受身体的极限和活动的目标，并且准备应用之物:
 
 ![](images/as_tra_depth_03-01.gif)
-*   Determine in advance the ground rules and limits of each party. Allow an experienced Top some discretion and the virgin Bottom a challenge to persevere.
+* 提前确认好每一个参与者的行为的规则和底线以防止受伤，可以运行有经验的拳攻进行一些自由判断，新手的拳受在不舒适的时候也可以适当坚持一下。
+
+    Chris Ward写了一篇很好的文章叫做《拳手和名捕》
 
 Chris Ward has authored an excellent article about [introducing catchers to the handball pitch](documents/advice_introducing_catchers_to_the_handball_pitch.pdf).
 
-* Prepare mentally for physiological sensations, specifically noting that just before the ring-pop, the stretch may seem unbearable—it may be easier to continue forward as compared to reversing backward.
-* Discuss the entrance and exit strategies such as duration inside (about 30 seconds) with very limited movement by the Top, retraction process (100% easier and less pain), entrance routine (steps three and four).
-* Break the seal on the poppers.
+* 为身体感受上的挑战做好心理准备，特别要指出的是： 当将要突入那个肌肉箍的时候，对括约肌的拉伸程度会让人觉得无法忍受- 但是实际上前进相比退回去来说反倒更容易一些。
+* 可以讨论一下进出的规则，比如在体内保持的时间（大约30秒），让攻尽可能保持不动Discuss the entrance and exit strategies such as duration inside (about 30 seconds) with very limited movement by the Top, retraction process (100% easier and less pain), entrance routine (steps three and four).
+* 打开Poper的瓶子.
 
-2. Determine the most comfortable entrance position:
+2. 确认最舒服的进入体位:
 
 ![](images/as_tra_depth_03-02.gif)
 
-* Natural Squat. This position allows the Bottom to control entrance by sitting on the hand of the partner. It also aligns the body in a position where the hole will open up most easily.
-* Back or Left Side. This position allows the Top to easily massage the hole while reading the face and [body language](a_body.html) of the Bottom.
-* Doggie. This position provides full control to the Top, but allows the Bottom to squat on the hand if necessary.
+* 自然下蹲：攻躺下，肘部在床上把小臂竖起来，受在他的手上方逐渐下蹲。 这种方式可以让受通过坐在伴侣的手上自行控制进入的程度。这种体位同时也是肛口最容易打开的姿势。
+* 躺着或者侧卧体位：这种姿势可以让攻更方便的按摩肛口，也更容易看到受的脸以读到受的身体语言。
+* 小狗体位：这种体位下，攻有最大的控制权，但是受也可以在想要的时候主动坐向攻的手。
 
 3. Stretch/loosen the hole with less than fifteen minutes of basic ass play:
 
@@ -305,16 +307,17 @@ Although not necessary, you may want to douche post play to remove excess lube, 
 Further progression will now require significantly larger dildos.
 
 
-### Mastering the Second Ring
+### 打开第二括约肌
 *Category: Partnership Exercises*
     
 **Supply Warehouse**
 
-* Small hand Top - QTY: 1
-* Extra-large dildos
-* Paper towels
-* Room Odorisers/Poppers
-* Towels or pads to place beneath the Bottom
+* 小手的攻- 一枚
+* 超大的假阳具
+* 手纸/纸巾
+* 芳香剂/Popers
+* 放在受下面，用于防止弄脏床铺的毛巾或者垫子
+* 大量的专用润滑剂
 * Copious amounts of specialty lube
 * Mister for lube rehydration
 * Table salt (if using J-lube)
@@ -332,45 +335,41 @@ Further progression will now require significantly larger dildos.
 * Frequency:  
 Solo - Semi-weekly  
 Partnership - Weekly  
-        
+  
 * Douche: [Level 2](as_wash.html#L2)
 * Mastery: Single Fist
-    
+  
 * [Print these instructions](documents/training_mastering_the_second_ring.pdf)
 * [View the demonstration](video/second_ring.mpg)
-    
+  
 #### Steps / Procedure
 
-1. Stretch the ring with [girth](as_train.html#progression) toys:
+1. 使用粗的玩具扩张括约肌:
 
 ![](images/as_tra_depth_04-01.gif)
 
-* Start with a 9 X 5 inch toy_**Minimum Size: 9 X 5**_  
-most manufacturers create toys in this range; the Doc Johnson _Ballsy Supercock_ series maxes out at nine inches at full depth.
+* 第一步使用直径4厘米长22厘米的玩具：最小尺寸22x4  
+很多玩具厂商都买这个尺寸的工具，自己去某宝找吧.
+* 慢慢增加玩具的尺寸直到能够插入30厘米深，最小尺寸30x4  
+很多玩具厂商出品的双头龙都能达到这个尺寸
+* 最终应该能够很轻易的插入这个粗细的玩具做活塞运动了
 
-* Continue a gradual increase in size to full depth at 12 inches_**Minimum Size: 12 X 5**_  
-most manufacturers create double-ended toys of this size; the Doc Johnson _Double Headed_ and _Double Headed JR_ max out at eighteen and twelve inches respectively  
-        
-the smaller colon snakes from Fort Troff are also suitable.
-* Finish by piston-fucking the hole with the longer dildo until comfortable with the girth.
-    
-2. Expand [girth](as_train.html#progression) and increase duration and stamina:
+2. 加粗尺寸并且增加抽查的时间以提耐力:
 
 ![](images/as_tra_depth_04-02.gif)
 
-*   Start with 9 X 6.5 inch toys at full depth.
-*   Continue a gradual increase in size to full depth at 10 X 7.5 inches_**Minimum Size: 10 X 7.5**_  
-the best toy for this exercise is Doc Johnson's _John Holmes U3_ dildo.
-*   Remain balls deep for one, three, and five minute intervals on the 10 X 7.5 toy.
+*   第一步使用22厘米长，5厘米直径的工具，连根插入.
+*   继续逐渐加大尺寸，直到能够连根插入25x6厘米尺寸的阳具，（至少25x6)
+*   25x6的阳具连根插入，进行保持1分钟，三分钟，五分钟的练习
 
-3.  Pop the second ring:
+3.  突入第二括约肌:
 
 ![](images/as_tra_depth_04-03.png)
 
-*   Start third knuckle-deep with four fingers in duck-billed position.
-*   Flatten the duck-bill over several sessions.
-*   Return to duck-bill position and introduce thumb.
-*   Finish by increasing pressure until through ring.
+*   第一步：用四个手指，采用鸭嘴装状插入到第三个关节的深度.
+*   通过几次练习把鸭嘴装的手指慢慢展平
+*   重新用鸭嘴状插入，但是加上拇指.
+*   慢慢增加力量，知道突入第二括约肌.
 
 4.  Develop a resting place with duration and stamina exercises for one, three, and five minute intervals.
 
@@ -459,7 +458,8 @@ Continued practice at this depth helps create a rest area for the next major hur
     
     ![](images/as_toy_figure_dildos_lg_holmes.png)
 
-    
+
+​    
 ### Mastering Elbow Depth Insertion
 *Category: Partnership Exercises*
 
@@ -602,8 +602,9 @@ Seek advice from pit fisters for additional depth.
     ![](images/as_toy_figure_dildos_lg_colossus.png)
     
     ![](images/as_toy_figure_dildos_lg_atombomb.png)
-    
-    
+
+
+​    
 ### Advice and Tips from the Pros
 *Category: Solo & Partnership Exercises*
 
