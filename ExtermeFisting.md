@@ -460,51 +460,55 @@ Continued practice at this depth helps create a rest area for the next major hur
 
 
 ​    
-### Mastering Elbow Depth Insertion
-*Category: Partnership Exercises*
 
-**Supply Warehouse**
+### 插入到肘的深度
 
-* Small hand Top - QTY: 1
-* Extra-large dildos
-* Paper towels
-* Room Odorisers/Poppers
-* Towels or pads to place beneath the Bottom
-* Copious amounts of lube
-* Mister for lube rehydration
-* Table salt (if using J-lube)
+× 类型：与伴侣共同进行*
 
-*   Goals
-*   Passage up to the third ring
-*   Expanded memory fist chute, specifically the iliac & descending colons
+**工具箱**
+
+* 小手的拳攻 - 一枚
+* 超大的假阳具
+× 纸巾
+× Popper
+* 用于小受身下的毛巾或者垫子
+* 大量的润滑剂
+* 用于保持润滑剂湿润的喷雾器
+× 如果用J-Lube的话，食盐
+
+
+**目标**
+
+* 穿过第三括约肌
+* 增强肛道的身体记忆，特别是髂骨和降结肠
 *   Development of internal road map
 
-*   Duration & Pre-requisites
-*   Period: Six Months to One Year
-*   Session Duration: ~1 Hour
-*   Frequency:  
-  Solo - Semi-weekly  
-  Parntership - Weekly  
 
-*   Douche: [Level 3](as_wash.html#L2)
-*   Mastery: Second Ring
+**时间和要求**
 
-*   [View the demonstration](video/elbow_depth.mpg)
-*   [Print these instructions](documents/training_mastering_elbow_depth_insertion.pdf)
+* 时长：六个月到一年
+* 一次玩的时间大约1小时
+* 频率： 自己练习每周两次，伴侣协助下的练习每周一次
 
-#### Steps / Procedure
+* 灌肠： 第三级
 
-1.  Straighten the sigmoid, iliac, and S curve with [length and girth](as_train.html#progression2) toys:
+* 基于第二括约肌
+
+#### 方法过程
+
+1.  使用玩具拉直乙状结肠，髂骨和S型弯：
 
 ![](images/as_tra_depth_05-01.gif)
 
-*   Start with a 18 X 5 inch _**Minimum Size: 18 X 5**_  
-most manufacturers double-headed toys of this size; the Doc Johnson _Double Header_ can be smooth or veined colon snake or soft double-header at fourteen inches.
-*   Shift gradually to firmer toys _**Minimum Size: 18 X 6.75**_  
-the _Dick Rambone_ from Doc Johnson is probably the best choice form firmness and girth with increased girth.
-*   Finish by slow piston-fucking at full depth until comfortable with the depth and girth; usually a balls deep insertion takes 10 to 15 seconds.
+* 开始的时候，用45cmX4厘米的阳具 _**最小尺寸是45x4**_
+  很多市面上卖的双头龙斗士这个尺寸，可以在某宝上找一找。
 
-2.  Begin coaching sessions with a knowledgeable Top in order to map out the road map:
+* 逐步增大玩具的尺寸以及使用更硬的工具 _**至少是45cmX5.5cm**_
+the _Dick Rambone_ from Doc Johnson is probably the best choice form firmness and girth with increased girth.
+
+* 最终应该能够适应这个长度和粗细的工具，在全部插入情况下慢慢进行活塞动作。通常会连根插入并保持10到15秒。
+
+2. 在一个经验丰富的攻的指导下进行练习，以明确目标和你的发展路线
 
 ![](images/as_tra_depth_05-02.gif)
 
