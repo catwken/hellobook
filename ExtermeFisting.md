@@ -271,21 +271,26 @@ Chris Ward has authored an excellent article about [introducing catchers to the 
 * 躺着或者侧卧体位：这种姿势可以让攻更方便的按摩肛口，也更容易看到受的脸以读到受的身体语言。
 * 小狗体位：这种体位下，攻有最大的控制权，但是受也可以在想要的时候主动坐向攻的手。
 
-3. Stretch/loosen the hole with less than fifteen minutes of basic ass play:
+3. 通过不超过15分钟的简单玩弄菊花来使它放松：
 
-![](images/as_tra_depth_03-03.gif)*   Start with toys or cock at full depth penetration.
+![](images/as_tra_depth_03-03.gif)*   
 
-* Apply the specialty lube to the hole and hand of the the Top.
-* Introduce fingers one at a time until four fingers are easily accepted.
+首先使用玩具或JJ深入的插进
+
+* 攻在菊花和手上涂好专用的润滑剂
+* 每次增加一个手指，直到受的菊花能够轻松接受4个手指插入
 
 
-4. Proceed to fist insertion:
+4. 尝试首次插入整个手:
 
 ![](images/as_tra_depth_03-04.gif)
 
-* Continue with four finger ass play, gradually going full-knuckle-four-wide.
-* Focus on deep breaths and meditative thoughts.
-* Inhale poppers and push out while the Top applies continual pressure to the hole.
+
+* 继续四个手指插入的练习，逐渐深入到四个手指的掌关节深度。
+* （受）集中精力到深呼吸上，并且放松精神
+* 当攻对菊花洞口增加压力时，吸入Popper并且用菊花向外推他的手
+* 保持视线的交流，放松（停止推挤），并且
+
 * Establish eye contact, relax (stop pushing), and release control to the Top to allow post-knuckle insertion.
 * After passing the ring, breath deep and resist the urge to push out.
 
@@ -298,6 +303,9 @@ As with DP and toys, your body may still be receiving signals to expel what is i
 Although not necessary, you may want to douche post play to remove excess lube, especially if it is J-lube. When you shower, having table salt available to remove lube on your skin is also helpful.
 
 #### Tips
+
+* 当攻的手腕通过后，受会立即感觉到一种强烈的把手从体内移出的意念。要抵制这种冲动，因为一旦退出后，在这次练习中，攻就不可能再次把手放入了。
+
 
 * The Bottom will immediately feel the urge to expel the wrist, as the rectal pressure exceeds 55 torrs. Resist this impulse, as the Top will not be able to re-enter during this session.
 * Taking your first fist is a mental exercise. If you completed activities that have previously stretched your hole and followed the massage routines here, there will be little or no tearing of the anal tissues.
@@ -323,9 +331,9 @@ Further progression will now require significantly larger dildos.
 * Table salt (if using J-lube)
 
 
-**Goals**
+**目标**
 
-* Passage into the sigmoid colon
+* 深入并且通过乙状结肠
 * Expanded memory of second ring and fist chute, specifically the sigmoid
 * Establishment of comfortable resting zone at mid forearm
 
