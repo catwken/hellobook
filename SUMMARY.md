@@ -15,3 +15,5 @@
 
 * [Anal Self Fisting guide](AnalSelf-FistingGuide.md)
 * [Best anal fisting guide](BestAnalFistingGuide.md)
+* [Anal streatching](AnalStretching.md)
+* [Deep anal fisting](DeepAnalFisting.md)
