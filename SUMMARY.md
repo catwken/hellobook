@@ -12,3 +12,6 @@
 * [（转）后门深似海-关于四爱的技术](backdoor_xx.md)
 * [(转)前列腺高潮](prostate_orgasm.md)
 
+
+* [Anal Self Fisting guide](AnalSelf-FistingGuide.md)
+* [Best anal fisting guide](BestAnalFistingGuide.md)
