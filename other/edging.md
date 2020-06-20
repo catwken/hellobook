@@ -252,3 +252,60 @@ Nonlinear response models may better  represent edging because there’s room fo
 Although many people enjoy edging, that’s not always the case. One woman writes about [how she finds her husband’s attempts at edging to be boring](https://www.irishexaminer.com/lifestyle/healthandlife/relationships/my-husband-has-started-edging-and-these-lengthy-sessions-are-making-me-bored-387872.html). It’s okay if edging isn’t for you or you only like to do it sparingly.
 
 If  you’re willing to try edging, you might find yourself capable of  stronger orgasms, and your sex life can benefit from trying something  new. But edging isn’t right for everyone, especially those people who  have difficulty having orgasms, so you should proceed with caution if  that’s you.
+
+
+## Questions & Answer
+
+**Q. My husband has started trying to withhold his orgasms, having read an article about how it can make them more intense.** 
+
+However, it now means that our sex sessions last for ages, even after I have orgasmed. 
+
+After a while I’m sore and, to be honest, a bit bored.
+
+**A. Your husband probably doesn’t realise it, but ‘edging’ was  originally a technique developed to help men suffering from premature  ejaculation (PE).**
+
+Devised by the urologist James Semans, the “stop-start” technique  aims to help men to identify the point at which an orgasm becomes an  inevitability.
+
+An alternative method, the ‘stop-squeeze’ technique, involves getting  to the point of no return and then squeezing the shaft of the penis  between the thumb and forefinger to prevent ejaculation. 
+
+Once a man is able to anticipate his point of no return he can stop using the technique and avoid ejaculating.
+
+In recent years both these techniques have been adapted as a form of sex play. 
+
+Fans of ‘edging’ love the sensation of almost coming, backing off and then taking it back to the brink again. 
+
+Some men experience dry orgasms when they edge, and once they finally  allow themselves to orgasm, the sensation is magnified exponentially.
+
+Some of the fascination with edging is driven by sexual curiosity but  it also reflects male insecurity about the rapidity with which they  tend to ejaculate once they have started having penetrative sex. 
+
+One widely cited German study into the prevalence of premature  ejaculation found that about a quarter of men said they had ‘low’ or  ‘no’ control over their ejaculation.
+
+A lot of anxiety exists around ejaculatory timing. 
+
+Most men last an average of about five minutes — unless they are into edging, like your husband.
+
+I would be surprised if you hadn’t already got cystitis from these lengthy sessions — and something obviously needs to be done. 
+
+However, I would suggest that instead of asking your hubby to get on with it, you ask him to teach you how to slow things down.
+
+Edging for women works on exactly the same principles and it is an incredibly liberating process. 
+
+It requires you to do two things that are conducive to good sex.
+
+First, focus on what you are feeling, and second, pass that information on to your husband.
+
+Your husband should stick to manual stimulation initially, and he needs to use plenty of lubrication.
+
+Your mind may wander, which is fine, but when you notice your thoughts drifting, bring them back to the sensation.
+
+As your arousal begins to build, resist the temptation to race to the finish.
+
+Instead, ask your husband to change the pace, or the pressure, to let the sensation subside.
+
+You need to guide him so he knows when to switch out of intense stimulation and when to begin building it back up.
+
+Sometimes it will feel as if you have lost the moment completely, but if he keeps stimulating you, the feelings will come back. 
+
+When you take sensation to the edge and back in this way, you give  your whole body time to become fully aroused and by the time you finally  allow yourself to orgasm, it will feel like an earthquake is rocking  your entire pelvic floor.
+
+If your husband happens to be inside you when this happens, the  strength of your contractions are guaranteed to make him climax too. 
