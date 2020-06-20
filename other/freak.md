@@ -17,19 +17,19 @@ If you’re always down to try something new but only because your man wants to,
 
 So learn to enjoy sex for yourself. You might not like everything you try, but most women can usually find something to enjoy during sex whether it’s the joy of being looked at, clitoral stimulation, oral sex or fantasizing in their heads.
 
-My most powerful sex tricks and tips aren't on this site. If you want to access them and give your lover back-arching, toe-curling, screaming orgasms that will keep them sexually obsessed with you, then you can learn these secret sex techniques in my private and discreet newsletter. You'll also learn the 5 dangerous mistakes that will ruin your sex life and relationship. Get it here.
+My most powerful sex tricks and tips aren't on this site. If you want to access them and give your lover back-arching, toe-curling, screaming orgasms that will keep them sexually obsessed with you.
 
 3. …And Make Your Own Suggestions
 
 Don’t just leave it to him to spice things up or initiate sex. Take the reigns yourself! Let your man know some freaky sex ideas you’d like to try, even if it seems a little out there. Chances are, he’ll think it’s hot that you’re contributing and will love seeing you so turned on when you do try it.
 
-Talking about sex can be difficult, so check out our guide to sexual communication to get it right.
+Talking about sex can be difficult, so check out our [guide to sexual communication](https://badgirlsbible.com/sexual-communication) to get it right.
 
 5. Have Confidence
 
 Everyone has hangups about their sexuality. Perhaps you’re worried that your tummy is too round or that you don’t sound “hot enough” during sex. Your man is probably worried about the size of his penis and whether he can keep it up, even if he’s never had complaints in that department.
 
-So take a deep breath and recognize that your flaws are magnified only to you and that you’re desirable. If that’s not enough, learn how to get over sexual anxiety once and for all. Otherwise, you probably won’t be game to try new things, and you’ll never learn how to be a freak in bed.
+So take a deep breath and recognize that your flaws are magnified only to you and that you’re desirable. If that’s not enough, learn [how to get over sexual anxiety once and for all](https://badgirlsbible.com/how-to-get-rid-of-sexual-anxiety). Otherwise, you probably won’t be game to try new things, and you’ll never learn how to be a freak in bed.
 
 6. Get Out of Your Routine
 
@@ -48,20 +48,20 @@ If you’re open to being freaky in bed but aren’t exactly sure what to do, we
 
 1. Anal play
 
-There are a bunch of options when it comes to butt play and being freaky in bed. You might think of anal sex right away (and you’ve got to read our tips for making the first time great), but you can try anal fingering with your partner or by yourself. Plus, rimming is a super freaky thing that some people like. Learn more here.
+There are a bunch of options when it comes to butt play and being freaky in bed. You might think of anal sex right away (and you’ve got to read our [tips for making the first time great](https://badgirlsbible.com/how-to-have-anal-sex) ), but you can try anal fingering with your partner or by yourself. Plus, rimming is a super freaky thing that some people like. Learn more here.
 
 2 Prostate play
 
-If your man is freaky, too, then you’ve got to try this. He can learn how to become multiply orgasmic and experience more intense orgasms through prostate play. Discover six tips for giving an amazing prostate massage here.
+If your man is freaky, too, then you’ve got to try this. He can learn how to become multiply orgasmic and experience more intense orgasms through prostate play. Discover six [tips for giving an amazing prostate massage here](https://badgirlsbible.com/prostate-massage).
 
 3. BDSM
 
 BDSM stands for bondage, discipline, sadism and masochism. The umbrella term covers a lot, and we mean a lot, of activities that most people consider freaky! We’ve already talked about BDSM and all it entails several times on the Bad Girls Bible, so check out the following articles if you want to know more.
 
-- BDSM for Beginners
-- 6 Wild BDSM Games
-- How Bondage Leads to Kinkier Sex
-- 10 Femdom Ideas to Dominate Your Man
+- [BDSM for Beginners](https://badgirlsbible.com/bdsm-for-beginners)
+- [6 Wild BDSM Games](https://badgirlsbible.com/bdsm-games)
+- [How Bondage Leads to Kinkier Sex](https://badgirlsbible.com/what-is-bondage)
+- [10 Femdom Ideas to Dominate Your Man](https://badgirlsbible.com/femdom-ideas)
 
 There’s always something new to try with BDSM if you really want to know how to be a freak in bed!
 
@@ -69,31 +69,31 @@ There’s always something new to try with BDSM if you really want to know how t
 
 Role playing can be part of BDSM, but you can also try it without any bondage or domination games at all! Think of a hot role such as teacher or student. If you’re already becoming aroused, then you’re well on your way to being freaky in bed!
 
-Related: Learn More About Role Playing With Your Man
+Related: [Learn More About Role Playing With Your Man](https://badgirlsbible.com/role-playing-with-your-man-in-the-bedroom)
 
 5. Sex in Public
 
 Many people who enjoy sex in public are at least a little freaky. There’s something about knowing others can (or could possibly) see or hear you that makes the sex so much hotter.
 
-We do caution against doing anything that could get you arrested and definitely avoid areas where children are! If you’d like to try sex in public with less risk, discover how to have incredible sex outside.
+We do caution against doing anything that could get you arrested and definitely avoid areas where children are! If you’d like to try sex in public with less risk, [discover how to have incredible sex outside.](https://badgirlsbible.com/sex-outside)
 
 6. Threesomes, Swinging and Group Sex
 
 Not every relationship is ideal for adding people, but the right relationships can flourish by increasing the number of people in the bedroom! There are a few things you can consider:
 
-- Swinging is when you swap partners. Learn more here.
+- Swinging is when you swap partners. [Learn more here.](https://badgirlsbible.com/what-is-a-swinger)
 - Group sex or orgies involve multiple people.
-- Threesomes can be tricky to organize (read more in this post) but can be well worth it.
+- Threesomes can be tricky to organize (read more in [this post](https://badgirlsbible.com/how-to-have-a-threesome) ) but can be well worth it.
 
 Before you attempt any of these situations, you should have a strong relationship. Adding people is not a way to fix your relationship, and you should have a handle on any jealousy.
 
-Read: How to Deal with Jealousy
+Read: [How to Deal with Jealousy](https://badgirlsbible.com/how-to-deal-with-jealousy)
 
 7. Edging
 
 Edging is a fun and freaky way to have better orgasms. It involves getting yourself or your partner to the brink of orgasm then backing off. You repeat this as long as you’d like (or can!) until you have one explosive orgasm.
 
-If this sounds like something you’re into, read more about edging.
+If this sounds like something you’re into, [read more about edging.](https://badgirlsbible.com/what-is-edging)
 
 8. Phone/Cyber Sex
 
@@ -101,11 +101,11 @@ You might already be familiar with having sex over the phone or computer if you�
 
 These two freaky sexy ideas make things hot. Even if you’re in the other room, you can send a steamy message for your man. Or you can leave a voicemail when he’s in the shower. Consider calling him up before you go to bed. Masturbating while he’s on the other end of the line is hot and can even help you sleep better. Adding video via webcam can feel incredibly intimate – and freaky!
 
-Learn how to have steamy phone sex in this guide to get started.
+Learn [how to have steamy phone sex in this guide to get started.](https://badgirlsbible.com/how-to-have-phone-sex)
 
 9. Biting and Scratching
 
-Biting and scratching are the tenets of rough sex. Leaving a mark can be so satisfying as can looking at a bruise or scratch on your own skin and remembering what you did (or had done to you!) to get it. Get 7 ideas for rough sex if you want to learn how to be a freak in bed.
+Biting and scratching are the tenets of rough sex. Leaving a mark can be so satisfying as can looking at a bruise or scratch on your own skin and remembering what you did (or had done to you!) to get it. Get [7 ideas for rough sex if you want to learn](https://badgirlsbible.com/rough-sex-ideas) how to be a freak in bed.
 
 10. Spanking
 
@@ -117,7 +117,7 @@ This item on our list of freaky sex ideas is often accompanied by other aspects 
 - Paddles may be leather or fur-covered and can even leave a design on your butt after use!
 - Slappers are paddles with an extra layer that provides a secondary bite!
 
-Learn more about spanking tools here. If you’re having trouble getting your man to spank you, try these 7 tricks to change his mind!
+Learn [more about spanking tools here](https://badgirlsbible.com/erotic-spanking). If you’re having trouble getting your man to spank you, try [these 7 tricks to change his mind](https://badgirlsbible.com/spank-me)!
 
 11. Talk Dirty
 
