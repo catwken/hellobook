@@ -17,3 +17,9 @@
 * [Best anal fisting guide](BestAnalFistingGuide.md)
 * [Anal streatching](AnalStretching.md)
 * [Deep anal fisting](DepthAnalFisting.md)
+
+* [小说](novels/index.md)
+    * [八零后的绝密日记](novels/gay/八零后的绝密日记.md)
+    * [父慈子孝之子在父腸](novels/gay/父慈子孝之子在父腸.md)
+    * [钙片男优的淫荡生活](novels/gay/钙片男优的淫荡生活.md)
+    * [我的拳交史](novels/gay/我的拳交史.md)
